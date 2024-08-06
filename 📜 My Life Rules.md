@@ -283,7 +283,7 @@ Your daily behaviors shape your future. A good day of training is worth little o
   
 
 
-Every effort counts. Anything above zero compounds. Start with small baby steps. Small things become big things. Ordinary becomes extraordinary. Drops of water make an ocean. Every focus session is a building block of a big pyramid. The little things really do count. Over time, things will add up and lead to giant leaps. Remember to always focus on how far you have come, not how far you have to go.
+Every effort counts. Anything above zero compounds. Start with small baby steps. Small things become big things. Ordinary becomes extraordinary. Drops of water make an ocean. Every focus session is a building block of a big pyramid. The little things really do count. The most exciting outputs come from the most boring inputs. Over time, things will add up and lead to giant leaps. Remember to always focus on how far you have come, not how far you have to go.
 
   
 
