@@ -8,17 +8,17 @@ Try to be the best version of yourself as you possibly can—that's the reason w
   
 
 
-Always give your best, even when no one is watching. It's not just about shining. It's about fueling your energy and boosting your confidence. At the end of the day, you can rest easy knowing you gave it your all.
+Always give your best, even when no one is watching. It's not just about shining. It's about fueling your energy and boosting your confidence. At the end of the day, you can rest easy knowing you have made the effort to do the best of which you're capable and gave it your all.
 
   
 
 
-Be obsessed with being the best in the world at whatever you do professionally. Wherever you go, go with all your heart. Hold yourself responsible for a higher standard than anybody expects of you.
+Be obsessed with being the best in the world at whatever you do professionally. [Go all-in on your obsession. It’s what you were born to do.](https://timdenning.com/all-in-on-obsession/) Wherever you go, go with all your heart. Hold yourself responsible for a higher standard than anybody expects of you.
 
   
 
 
-Try to be legendary in your own way. Few people get remembered hundreds of years after they die. Live a life worth remembering. You have nothing to lose.
+[Try to be legendary in your own way.](https://www.youtube.com/watch?v=Ju5kyQJyGBY) Few people get remembered hundreds of years after they die. Live a life worth remembering. [You have nothing to lose.](https://www.youtube.com/watch?v=EBtX9vh9KI4) You only lose what you cling to.
 
   
 
@@ -53,17 +53,17 @@ Deliberately train yourself to be very good at suffering, uncommonly resilient, 
   
 
 
-Never lose the faith, no matter what sort of difficulties, how painful experience is. Remember, if you lose your hope, that’s your real disaster.
+Never lose the faith, no matter what sort of difficulties, how tough or painful experience is. Remember, if you lose your hope, that’s your real disaster.
 
   
 
 
-Pain is inevitable. Suffering is optional. As long as you find the thing you love to do or get obsessed with. Follow your obsession.
+[Pain is inevitable. Suffering is optional.](https://www.youtube.com/shorts/ZWVecJO7g0c) As long as you find the thing you love to do or get obsessed with. [Follow your obsession.](https://x.com/zachpogrob?lang=en)
 
   
 
 
-All greatness comes good character. And that character isn’t formed out of smart people. It’s formed from people who suffered.
+[All greatness comes good character. And that character isn’t formed out of smart people. It’s formed from people who suffered.](https://www.youtube.com/watch?v=vOvQSqY7Jgc)
 
   
 
@@ -88,7 +88,7 @@ Never, ever stop learning. If you don't learn, you can't change, and if you are 
   
 
 
-Question every rule. Doubt everything. Remove all labels. Don't believe everything you believe now. No beliefs are true. Avoid the trap of expertise and experience.
+Question every rule. Doubt everything. Remove all labels. Don't believe everything you believe now. No beliefs are true. [Avoid the trap of expertise and experience.](https://hbr.org/podcast/2019/04/avoiding-the-expertise-trap)
 
   
 
@@ -98,7 +98,7 @@ Expect nothing. Expectations are limitations. They limit your true potential.
   
 
 
-Adapt what is useful, reject what is useless, and add what is specifically your own. Adopt what works for you NOW.
+[Adapt what is useful, reject what is useless, and add what is specifically your own.](https://www.goodreads.com/quotes/30620-adapt-what-is-useful-reject-what-is-useless-and-add) Adopt what works for you NOW.
 
   
 
@@ -113,12 +113,12 @@ Always see things from different perspectives. No assumptions. No judgments.
   
 
 
-Never forget why you are really doing what you are doing. Always ask the WHY.
+Never forget why you are really doing what you are doing. [Always ask the WHY.](https://www.youtube.com/watch?v=u4ZoJKF_VuA)
 
   
 
 
-Spend much of your day out of interest rather than obligation.
+[Spend much of your day out of interest rather than obligation.](https://x.com/naval/status/908052298957332480)
 
   
 
@@ -128,12 +128,12 @@ Only do what energizes and makes you truly fulfilled and happy as a kid. Only do
   
 
 
-You get one life. One chance. One go. You make yourself either miserable or strong — the amount of work is the same. Why not create something wonderful?
+You get one life. One chance. One go. [You make yourself either miserable or strong — the amount of work is the same.](https://www.goodreads.com/quotes/150453-we-either-make-ourselves-miserable-or-we-make-ourselves-strong) Why not create something wonderful?
 
   
 
 
-Never forget your childhood dreams. Have the courage to follow your own heart and intuition — they somehow already know what you truly want to become — everything else is secondary.
+Never forget your childhood dreams. [Have the courage to follow your own heart and intuition — they somehow already know what you truly want to become — everything else is secondary.](https://www.goodreads.com/quotes/445286-have-the-courage-to-follow-your-heart-and-intuition-they)
 
   
 
@@ -143,17 +143,17 @@ Let your heart speak. Listen to your instinct. Grab the opportunity when it p
   
 
 
-Life shrinks or expands in proportion to one's courage. Twenty years from now you will regret and be more disappointed by the things that you didn't do than by the ones you did do.
+[Life shrinks or expands in proportion to one's courage.](https://x.com/tferriss/status/1771644332367327414#) Twenty years from now you will regret and be more disappointed by the things that you didn't do than by the ones you did do.
 
   
 
 
-Don't let the noise of others' opinions drown out your own inner voice. A lion doesn't concern himself with the opinions of the sheep. Your time is so limited. Don’t waste it living someone else’s life.
+Don't let the noise of others' opinions drown out your own inner voice. A lion doesn't concern himself with the opinions of the sheep. Beet don't waste their time explaining to flies that honet is netter than shit. Your time is so limited. Don’t waste it living someone else’s life.
 
   
 
 
-Be your true self. Your job, throughout your entire life, is to disappoint as many people as it takes to avoid disappointing yourself.
+Be your true self. [Your job, throughout your entire life, is to disappoint as many people as it takes to avoid disappointing yourself.](https://www.goodreads.com/quotes/10286222-your-job-throughout-your-entire-life-is-to-disappoint-as)
 
   
 
@@ -173,12 +173,17 @@ Do not try to be the man your father would want you to be. Be the man you would 
   
 
 
-Be the master of your fate. Be the captain of your soul. Own your power, influence your world, and be the champion you are meant to be. Never compare yourself to others. Comparison is the thief of joy. Run your own race. No jealousy. No envy. You should be too busy working on your grass to notice others is greener. Water your own grass.
+Be the master of your fate. Be the captain of your soul. Own your power, influence your world, and be the champion you are meant to be. Never compare yourself to others. Comparison is the thief of joy. Run your own race. No jealousy. No envy.
 
   
 
 
-Just do yourself. No one will ever be as good at being you than you are. No one can compete with you on being you. You are always going to win the "YOU" game.
+If you spend your time chasing butterflies, they'll fly away. But if you spend your time making/mending a beautiful garden, the butterflies will come. [You should be too busy working on your grass to notice others is greener. Water your own grass.](https://www.reddit.com/r/GetMotivated/comments/fk2pol/image_im_too_busy_working_on_my_own_grass_to/)
+
+  
+
+
+Just do yourself. [No one will ever be as good at being you than you are. No one can compete with you on being you.](https://x.com/naval/status/797865441783709696?lang=en) You are always going to win the "YOU" game.
 
   
 
@@ -193,7 +198,7 @@ Embrace the uncertainty and randomness. Don't fixate on anything. When nothing i
   
 
 
-In life, the only constant is change. Your life doesn't get better by chance, it gets better by change. The first step toward change is awareness. The second step is acceptance. Be ready to transform yourself completely into another person, and be ready to be in an internal state of self-revolution at any time. Be dynamic, adaptable, and open-minded. Don't settle. Move. You are not a tree!
+[In life, the only constant is change.](https://www.youtube.com/watch?v=4q1dgn_C0AU) Your life doesn't get better by chance, it gets better by change. The first step toward change is awareness. The second step is acceptance. Be ready to transform yourself completely into another person, and be ready to be in an internal state of self-revolution at any time. Be dynamic, adaptable, and open-minded. Don't settle. Move. You are not a tree!
 
   
 
@@ -208,17 +213,17 @@ There is no such thing as a perfect you. It's all about optimization. And optimi
   
 
 
-Keep your identity small. Listen to constructive negative feedback and criticism. Seek for the truth. No ego. Be humble. When you let go of what you are, you become what you might be.
+[Keep your identity small.](https://paulgraham.com/identity.html) Listen to constructive negative feedback and criticism. Seek for the truth. No ego. Be humble. Be coachable. When you let go of what you are, you become what you might be.
 
   
 
 
-Life goes on. You got to keep going, keep moving, keep improving, keep exploring, and keep experimenting. Life can only be understood backwards, but it must be lived forwards.
+Life goes on. You got to keep going, keep moving, keep improving, keep exploring, and keep experimenting. [Life can only be understood backwards, but it must be lived forwards.](https://www.goodreads.com/quotes/6812-life-can-only-be-understood-backwards-but-it-must-be)
 
   
 
 
-Explore, Discover, Try, Fail, Disappoint, Get lost, Suffer, Ask, Get feedback, Learn, Grow, Iterate, and Repeat. You can't connect the dots looking forward; you can only connect them looking backwards. 
+Explore, Discover, Try, Fail, Disappoint, Get lost, Suffer, Ask, Get feedback, Learn, Grow, Iterate, and Repeat. [You can't connect the dots looking forward; you can only connect them looking backwards.](https://www.goodreads.com/quotes/463176-you-can-t-connect-the-dots-looking-forward-you-can-only) 
 
   
 
@@ -233,7 +238,7 @@ Never give up. Never make the same mistake. Adapt to changes. Learn from failure
   
 
 
-The world isn't run by perfect people who never failed. The world is run by imperfect people who failed over and over again—but who used every failure to set the conditions for their future success. The best are never broken by the chaos—they train themselves to be prepared for it, to benefit from it.
+[The world isn't run by perfect people who never failed. The world is run by imperfect people who failed over and over again—but who used every failure to set the conditions for their future success. The best are never broken by the chaos—they train themselves to be prepared for it, to benefit from it.](https://www.sahilbloom.com/newsletter/how-to-use-failure-to-succeed)
 
   
 
@@ -243,7 +248,7 @@ If something is wrong, fix it now, but train yourself not to worry. Worry is was
   
 
 
-If you don't like something, change it. If you can't change it, change your attitude. Never complain about anything. Everything is your fault. Don't make any excuses. Things that are not your fault can still be your responsibility. Taking the small things seriously.
+If you don't like something, change it. If you can't change it, change your attitude. Never complain about anything. [Everything is your fault.](https://www.amazon.de/-/en/Jocko-Willink/dp/1250183863) Don't make any excuses. Things that are not your fault can still be your responsibility. Take the small things seriously.
 
   
 
@@ -253,7 +258,7 @@ Determine the variables that are within your control. Control the controllable.
   
 
 
-Pursue your goals aggressively and relentlessly. There is no compromise. Don't just dream for winning. Train for it.
+Pursue your goals aggressively and relentlessly. There is no compromise. [Don't just dream for winning. Train for it.](https://www.instagram.com/sirmofarah/p/CwSwPhiIZDY)
 
   
 
@@ -268,7 +273,7 @@ Meanwhile, don't ask for any permission. Just tap yourself on the shoulder and d
   
 
 
-Make consistent daily tiny actions. Make everyday count. Never miss a day. Everyday you start at zero. Each morning you are born again. What you do today is what matters most. The days are long, but the decades are short. No time wasted. Every single minutes matters. Ten minutes, once gone, are gone for good. You will never get the same moment twice.
+Make consistent daily tiny actions. Make everyday count. Never miss a day. Everyday you start at zero. Each morning you are born again. What you do today is what matters most. [The days are long, but the decades are short.](https://blog.samaltman.com/the-days-are-long-but-the-decades-are-short) No time wasted. Every single minutes matters. Ten minutes, once gone, are gone for good. You will never get the same moment twice.
 
   
 
@@ -278,7 +283,7 @@ Show up every day. Be a habit and routine machine. Do a little more what yo
   
 
 
-Your daily behaviors shape your future. A good day of training is worth little on its own, but a good year was worth plenty. Your final results are merely a reflection of your prior commitments. All success is a lagging indicator.
+Your daily behaviors shape your future. A good day of training is worth little on its own, but a good year was worth plenty. Your final results are merely a reflection of your prior commitments. [All success is a lagging indicator.](https://ryanholiday.net/all-success-is-a-lagging-indicator)
 
   
 
@@ -288,7 +293,7 @@ Every effort counts. Anything above zero compounds. Start with small baby steps.
   
 
 
-Be very biased toward execution. Set 5-year goals, but take 10-minute actions. Think in terms of decades, but act in terms of days. Think as if you were in a marathon, but act as if you were in a sprint. Think like a man of action, and act like a man of thought. Focus on the effort, not outcomes. Be patient with results, but inpatient with actions. If you are not taking action consistently, then you are not practicing patience—you are just waiting. Remember: Action doesn't have to be perfect for it to be right.
+Be very biased toward execution. Set 5-year goals, but take 10-minute actions. Think in terms of decades, but act in terms of days. Think as if you were in a marathon, but act as if you were in a sprint. Think like a man of action, and act like a man of thought. Focus on the effort, not outcomes. Be patient with results, but inpatient with actions. [If you are not taking action consistently, then you are not practicing patience—you are just waiting.](https://jamesclear.com/3-2-1/may-16-2024) Remember: Action doesn't have to be perfect for it to be right.
 
   
 
@@ -313,12 +318,12 @@ In the mean time, try to accomplish things with the least amount of effort. Find
   
 
 
-Show your work. Share all ideas you have. Share a lot. Put them freely on the internet. Open source your knowledge. Give everything you have without any expectations in return.
+[Show your work.](https://austinkleon.com/show-your-work/) Share all ideas you have. Share a lot. Put them freely on the internet. [Open source your knowledge.](https://wiki.nikiv.dev) Give everything you have without any expectations in return.
 
   
 
 
-Most of life is a search for who and what needs you the most. Serve for the community. Try your best to be useful and helpful to the society, the world, the universe. Your goal is to become a person of value, not a person of success.
+[Most of life is a search for who and what needs you the most.](https://x.com/naval/status/797865441783709696?lang=en) Serve for the community. Try your best to be useful and helpful to the society, the world, the universe. Your goal is to become a person of value, not a person of success. Inspire and help others, however you can.
 
   
 
@@ -338,7 +343,7 @@ Do things no one cares about but you. Do the old fashioned things well. Do fooli
   
 
 
-Start where you are. Use what you have. Do what you can. Focus on what you can control. Your time will finally come. The things you've been waiting for will finally come. Just keep persevering and be patient. Remember: A man who is a master of patience is master of everything else. You are always just one good decision away from being in a better place tomorrow—just focus on the next decision.
+[Start where you are. Use what you have. Do what you can.](https://www.goodreads.com/quotes/9743989-start-where-you-are-use-what-you-have-do-what) Focus on what you can control. Your time will finally come. The things you've been waiting for will finally come. Just keep persevering and be patient. Remember: A man who is a master of patience is master of everything else. You are always just one good decision away from being in a better place tomorrow—just focus on the next decision.
 
   
 
@@ -353,7 +358,7 @@ Hope for the best, prepare for the worst, take what comes.
   
 
 
-Never let success get into your head. Never let failure get into your heart.
+[Never let success get into your head. Never let failure get into your heart.](https://www.goodreads.com/quotes/836064-never-let-success-get-to-your-head-and-never-let)
 
   
 
@@ -368,12 +373,12 @@ Stop avoiding the uncomfortable work you need to do. Do what you are most afraid
   
 
 
-The magic you are looking for is in the work you are always avoiding. The cave you fear to enter holds the treasure you seek. Gather information and confront your fears.
+[The magic you are looking for is in the work you are always avoiding.](https://www.youtube.com/shorts/E0SkEQ1e3P0) [The cave you fear to enter holds the treasure you seek.](https://www.goodreads.com/quotes/192665-the-cave-you-fear-to-enter-holds-the-treasure-you) Gather information and confront your fears.
 
   
 
 
-If you want to be good, you don't really have a lot of choices. It takes what it takes. You have to do what you have to do to be successful.
+[If you want to be good, you don't really have a lot of choices. It takes what it takes. You have to do what you have to do to be successful.](https://m.youtube.com/watch?v=R0CAAlMo3f8)
 
   
 
@@ -383,27 +388,27 @@ Don't wait. Don't tell yourself you'll warm up to it. Do it now. Do it first. Th
   
 
 
-Discipline now, freedom later. Only the disciplined ones in life are free. The labor will pass, but the rewards will last.
+[Discipline now, freedom later.](https://dailystoic.com/discipline-nowfreedom-later/) [Only the disciplined ones in life are free.](https://www.youtube.com/shorts/hywDs1dhTOI) The labor will pass, but the rewards will last.
 
   
 
 
-Do hard things. Seek intensive hardships to forge self-discipline and self-control. You will feel incredibly great afterwards. Eat the frog. Build your evidence pool. Be accountable and reliable.
+[Do hard things.](https://x.com/hubermanlab/status/1720932074318635396?lang=en) Seek intensive hardships to forge self-discipline and self-control. You will feel incredibly great afterwards. Eat the frog. Build your evidence pool. Be accountable and reliable.
 
   
 
 
-Life is never going to be easy. Everything you want to earn in life is on the other side of hundreds of things that suck.
+Life is never going to be easy. [Everything you want to earn in life is on the other side of hundreds of things that suck.](https://x.com/SahilBloom/status/1731017312398963015)
 
   
 
 
-Life is hard. Choose your hard. Use the difficulty. Find your edge. Remember that: The right way is the hard way. The obstacle is the way. We all struggle; it’s just part of being human.
+Life is hard. Choose your hard. Use the difficulty. Find your edge. Remember that: The right way is the hard way. The obstacle is the way. We all struggle; it’s just part of human nature.
 
   
 
 
-You can't read the label from inside the bottle. Sometimes it takes outside eyes to help you see where you are.
+[You can't read the label from inside the bottle. Sometimes it takes outside eyes to help you see where you are.](https://rhondapeterson.com/you-cant-read-the-label-from-inside-the-bottle/)
 
   
 
@@ -453,7 +458,7 @@ Always speak less than necessary. Keep your mouth shut as much as possible. The 
   
 
 
-Man who cannot control his words cannot control himself.
+[Man who cannot control his words cannot control himself.](https://x.com/RobertGreene/status/1765074873523798410#)
 
   
 
@@ -518,7 +523,7 @@ Never ever sacrifice your sleep. Don't limit sleep length. Sleep as much as your
   
 
 
-Move your body. Tame your mind. Meditate, journal, go for a walk or do micro exercises throughout the day.
+Move your body. [Tame your mind. ](https://www.youtube.com/watch?v=UlAPNQN2-Fw)Meditate, journal, go for a walk or do micro exercises throughout the day.
 
   
 
@@ -538,7 +543,7 @@ Fast as often as you can. Don’t eat too much. Only eat when you are hungry. St
   
 
 
-Eat real whole food only. No junk. Eat mostly plants. Drink lots of water and tea. Limit coffee. No sugar, except raw honey. No alcohol, except white or red wine. 
+[Eat real whole food only. No junk. Eat mostly plants.](https://www.youtube.com/user/nutritionfactsorg) Drink lots of water and tea. Limit coffee. No sugar, except raw honey. No alcohol, except white or red wine. 
 
   
 
@@ -553,17 +558,17 @@ Accept everything. Judge nothing. Find beauty in everything.
   
 
 
-Happiness comes from being grateful for what you already have. Being upset over what you don't have is to waste what you do have. Never let the things you want make you forget the things you already have. Remember that what you now have was once among the things you only hoped for. Your life is already amazing, and it's lucky that you even exist and breathe right now.
+Happiness comes from being grateful for what you already have. Being upset over what you don't have is to waste what you do have. Never let the things you want make you forget the things you already have. [Remember that what you now have was once among the things you only hoped for.](https://www.goodreads.com/quotes/169009-do-not-spoil-what-you-have-by-desiring-what-you) Your life is already amazing, and it's lucky that you even exist and breathe right now.
 
   
 
 
-Don’t let the pursuit of more stop you from enjoying what you already have. Never let the quest for more distract you from the beauty of enough. Enough is enough. Moderation/Harmony is key.
+[Don’t let the pursuit of more stop you from enjoying what you already have.](https://aliabdaal.com/newsletter/30-lessons-for-my-30s/) [Never let the quest for more distract you from the beauty of enough.](https://x.com/SahilBloom/status/1607057493762658306?lang=en) Enough is enough. Moderation/Harmony is key.
 
   
 
 
-If you’re going to pursue “more”, remember to keep your life balanced, especially in terms of your health and relationships.
+[If you’re going to pursue “more”, remember to keep your life balanced, especially in terms of your health and relationships.](https://aliabdaal.com/newsletter/30-lessons-for-my-30s/)
 
   
 
@@ -573,12 +578,12 @@ There is no such achievement you could possibly achieve that will make you any h
   
 
 
-Life is only 4000 weeks long. Make the rest of your life the best of your life. Don't live the same year 75 times and call it a life. Inject some planned spontaneity and adventures into your days. Every time you do something that is one less time you could do it — cherish every moment of your life like it is your last — because it very well might be. Every single thing you do today is something that your ninety-year-old self would wish they could go back and do. The good old days are happening RIGHT NOW.
+[Life is only 4000 weeks long.](https://www.amazon.de/-/en/Oliver-Burkeman/dp/0374159122) Make the rest of your life the best of your life. [Don't live the same year 75 times and call it a life.](https://www.goodreads.com/quotes/1346035-don-t-live-the-same-year-75-times-and-call-it) Inject some planned spontaneity and adventures into your days. Every time you do something that is one less time you could do it — cherish every moment of your life like it is your last — because it very well might be. Every single thing you do today is something that your ninety-year-old self would wish they could go back and do. The good old days are happening RIGHT NOW.
 
   
 
 
-Smile often. Laugh more. A day without laughter is a day wasted. Be funny. Be playful. Be cheerful. Chill out. Have fun. Don’t panic. Calmness is a superpower.
+Smile often. Laugh more. A day without laughter is a day wasted. Be funny. Be playful. Be cheerful. Chill out. Have fun. Don’t panic. [Calmness is a superpower.](https://stephango.com/calmness)
 
   
 
@@ -593,7 +598,7 @@ Take a deep breath. Relax. Enjoy each moment in life. Let shit go. Choose to be 
   
 
 
-Be optimistic. Stop being afraid of what could go wrong, and start being positive about what could go right. Focus on the positives.
+[Be optimistic.](https://www.youtube.com/watch?v=FrqBWQ-mVEc) Stop being afraid of what could go wrong, and start being positive about what could go right. Focus on the positives.
 
   
 
@@ -628,7 +633,7 @@ You are the average of the five people you associate with most. The quality of y
   
 
 
-Life is short. Savor close relationships. Treasure "inner circle" friendships. Tell those human you love that you love them while they are still alive. Create memories with them.
+[Life is short.](https://paulgraham.com/vb.html) Savor close relationships. Treasure "inner circle" friendships. Tell those human you love that you love them while they are still alive. Create memories with them.
 
   
 
@@ -648,7 +653,7 @@ Don’t hate anyone. Don't insult anyone. Only take shots at things, not people.
   
 
 
-Humanize the people around you. Do not put them on pedestals. The adults do not exist. There is just giant children figuring things out.
+[Humanize the people around you. Do not put them on pedestals. The adults do not exist. There is just giant children figuring things out.](https://x.com/george__mack/status/1766767193075691763)
 
   
 
@@ -663,12 +668,12 @@ Praise specifically. Criticize generally. Praise in public. Criticize in private
   
 
 
-Be kind, gentle, and friendly. Show empathy. Inspire and help others, however you can. You have an unlimited resource of love and kindness. Radiate boundless love towards the entire world. Give it to others every single day. Practice small acts of kindness and don't keep score.
+Be kind, gentle, and friendly. Every single person is fighting a battle you know nothing about. Show empathy. You have an unlimited resource of love and kindness. Radiate boundless love towards the entire world. Give it to others every single day. Practice small acts of kindness and don't keep score.
 
   
 
 
-When you think something nice about someone, tell them. Don't hold any unexpressed love until the last of your life. Leave a positive review. Leave a compliment for someone, no matter how small it is. Make the coffee.
+When you think something nice about someone, tell them. Don't hold any unexpressed love until the last day of your life. Leave a positive review. Leave a compliment for someone, no matter how small it is. Make the coffee.
 
   
 
