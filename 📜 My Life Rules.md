@@ -1,6 +1,5 @@
 Dear Today Me,
 
-  
 
 
 Try to be the best version of yourself as you possibly can—that's the reason why you exist on this planet.
