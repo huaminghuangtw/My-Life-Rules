@@ -213,7 +213,7 @@ There is no such thing as a perfect you. It's all about optimization. And optimi
   
 
 
-[Keep your identity small.](https://paulgraham.com/identity.html) Listen to constructive negative feedback and criticism. Seek for the truth. No ego. Be humble. Be coachable. When you let go of what you are, you become what you might be.
+[Keep your identity small.](https://paulgraham.com/identity.html) Listen to constructive negative feedback and criticism. Seek for the truth. No ego. Be humble. Be coachable. When you let go of what you are, you become what you might be. Enjoy being wrong or looking/sounding “stupid” in a public setting. Embrace that beginner's embarrassment. Approach everything with a beginner's mind.
 
   
 
@@ -623,12 +623,12 @@ Live in the present. Let past go. Look towards the future. Anything outside of t
   
 
 
-Surround yourself only with people you love and admire. Put yourself into rooms with a high density of value-aligned individuals. Reach out to people who are going to uplift you higher and living the life you want to live. Find people who are genuinely rooting for you to succeed and truly wanting to see you to win. Hold on to these people like your life depends on them.
+Surround yourself with people you love and admire. Put yourself into rooms with a high density of value-aligned individuals. Reach out to inspiring people who are going to uplift you higher and living the life you want to live. Find people who are genuinely rooting for you to succeed and truly wanting to see you to win. Hold on to these people like your life depends on them.
 
   
 
 
-You are the average of the five people you associate with most. The quality of your experiences will be largely determined by the people you surround yourself with.
+You are the average of the five people you associate with most. The quality of your experiences will be largely determined by the people you surround yourself with. Find your tribe.
 
   
 
