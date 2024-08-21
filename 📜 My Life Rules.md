@@ -343,7 +343,12 @@ Do things no one cares about but you. Do the old fashioned things well. Do fooli
   
 
 
-[Start where you are. Use what you have. Do what you can.](https://www.goodreads.com/quotes/9743989-start-where-you-are-use-what-you-have-do-what) Focus on what you can control. Your time will finally come. The things you've been waiting for will finally come. Just keep persevering and be patient. Remember: A man who is a master of patience is master of everything else. You are always just one good decision away from being in a better place tomorrow—just focus on the next decision.
+[Start where you are. Use what you have. Do what you can.](https://www.goodreads.com/quotes/9743989-start-where-you-are-use-what-you-have-do-what) Focus on what you can control. Your time will finally come. The things you've been waiting for will finally come. Just keep persevering and be patient. Remember: A man who is a master of patience is master of everything else.
+
+  
+
+
+You are always just one good decision away from being in a better place tomorrow—just focus on the next decision. [Just begin. Solve one problem. Then solve the next one. And the next.](https://www.youtube.com/watch?v=mDYCLFE86Po)
 
   
 
