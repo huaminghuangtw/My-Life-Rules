@@ -133,6 +133,11 @@ You get one life. One chance. One go. [You make yourself either miserable or str
   
 
 
+[Either write something worth reading or do something worth writing.](https://www.brainyquote.com/quotes/benjamin_franklin_133951)
+
+  
+
+
 Never forget your childhood dreams. [Have the courage to follow your own heart and intuition — they somehow already know what you truly want to become — everything else is secondary.](https://www.goodreads.com/quotes/445286-have-the-courage-to-follow-your-heart-and-intuition-they)
 
   
@@ -148,7 +153,7 @@ Let your heart speak. Listen to your instinct. Grab the opportunity when it p
   
 
 
-Don't let the noise of others' opinions drown out your own inner voice. A lion doesn't concern himself with the opinions of the sheep. Beet don't waste their time explaining to flies that honet is netter than shit. Your time is so limited. Don’t waste it living someone else’s life.
+Don't let the noise of others' opinions drown out your own inner voice. A lion doesn't concern himself with the opinions of the sheep. Bees don't waste their time explaining to flies that honey is better than shit. Your time is so limited. Don’t waste it living someone else’s life.
 
   
 
@@ -248,7 +253,7 @@ If something is wrong, fix it now, but train yourself not to worry. Worry is was
   
 
 
-If you don't like something, change it. If you can't change it, change your attitude. Never complain about anything. [Everything is your fault.](https://www.amazon.de/-/en/Jocko-Willink/dp/1250183863) Don't make any excuses. Things that are not your fault can still be your responsibility. Take the small things seriously.
+If you don't like something, change it. If you can't change it, change your attitude. Never complain about anything. [Everything is your fault.](https://www.amazon.de/-/en/Jocko-Willink/dp/1250183863) Don't make any excuses. Things that are not your fault can still be your responsibility.
 
   
 
@@ -288,7 +293,7 @@ Your daily behaviors shape your future. A good day of training is worth little o
   
 
 
-Every effort counts. Anything above zero compounds positively. Start with small baby steps. Small things become big things. Ordinary becomes extraordinary. Drops of water make an ocean. Every focus session is a building block of a big pyramid. The little things really do count. The most exciting outputs come from the most boring inputs. Over time, things will add up and lead to giant leaps. Remember to always focus on how far you have come, not how far you have to go.
+Every effort counts. How you do one thing is how you do everything. Anything above zero compounds positively. Start with small baby steps. Small things become big things. Ordinary becomes extraordinary. Drops of water make an ocean. Every focus session is a building block of a big pyramid. Take the small things seriously. The little things really do count. The most exciting outputs come from the most boring inputs. Over time, things will add up and lead to giant leaps. Remember to always focus on how far you have come, not how far you have to go.
 
   
 
@@ -308,7 +313,7 @@ Enjoy the process. Trust the exponential growth and super-linear returns for per
   
 
 
-Work hard. Work very hard. Work very hard every waking hour. But not every day. Work as hard as you can without burning out. The world needs people willing to work while others rest. Outwork everyone.
+Work hard. Work very hard. Work very hard every waking hour. But not every day. Work as hard as you can without burning out. The world needs people willing to work while others rest. [If you want to look good in front of thousands, you have to outwork thousands in front of nobody.](https://x.com/Dame_Lillard/status/555485512492785665?lang=en)
 
   
 
@@ -383,7 +388,7 @@ Stop avoiding the uncomfortable work you need to do. Do what you are most afraid
   
 
 
-[If you want to be good, you don't really have a lot of choices. It takes what it takes. You have to do what you have to do to be successful.](https://m.youtube.com/watch?v=R0CAAlMo3f8)
+[If you want to be good, you don't really have a lot of choices. It takes what it takes. You have to do what you have to do to be successful.](https://m.youtube.com/watch?v=R0CAAlMo3f8) Do what is necessary. Do what is required.
 
   
 
