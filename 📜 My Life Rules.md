@@ -68,7 +68,7 @@ Never lose the faith, no matter what sort of difficulties, how tough or painful 
   
 
 
-Act as if today is your last day on Earth. Learn as if you were to live forever. If you are not growing, you are dying.
+Act as if today is your last day on Earth. Learn as if you were to live forever.
 
   
 
@@ -83,12 +83,11 @@ Try to learn something from everyone and everything every day. Learn from those 
   
 
 
-Never, ever stop learning. If you don't learn, you can't change, and if you are not changing, what is the point of being here? Think about it again! Cherish this massive birth gift! Always have faith in your capability learn new skills, no matter how hard the task seems.
+Never, ever stop learning. If you are not growing, you are dying. If you don't learn, you can't change, and if you are not changing, what is the point of being here? Think about it again! Cherish this massive birth gift. Always have faith in your capability learn new skills, no matter how hard the task seems. There is a universe of knowledge around you waiting to be explored and discovered.
 
-  
+ 
 
-
-Question every rule. Doubt everything. Remove all labels. Don't believe everything you believe now. No beliefs are true. [Avoid the trap of expertise and experience.](https://hbr.org/podcast/2019/04/avoiding-the-expertise-trap)
+Question every rule. Always dig deeper. Doubt everything. Remove all labels. Don't believe everything you believe now. No beliefs are true. [Avoid the trap of expertise and experience.](https://hbr.org/podcast/2019/04/avoiding-the-expertise-trap)
 
   
 
@@ -143,7 +142,7 @@ Never forget your childhood dreams. [Have the courage to follow your own heart a
   
 
 
-Let your heart speak. Listen to your instinct. Grab the opportunity when it presents itself, and then give it your all.
+Let your heart speak. Listen to your instinct. If your heart isn’t in it, don’t start it. Grab the opportunity when it presents itself, and then give it your all.
 
   
 
@@ -423,7 +422,7 @@ Life is hard. Choose your hard. Use the difficulty. Find your edge. Remember tha
   
 
 
-When in doubt, zoom out. When in doubt, don't. When in doubt, follow your genuine intellectual curiosity and interests. They never lie, and they know more than you do about what is worth paying attention to.
+[When in doubt, zoom out.](https://www.youtube.com/watch?v=wupToqz1e2g) [When in doubt, don't.](https://www.brainyquote.com/quotes/benjamin_franklin_119121) [When in doubt, follow your genuine intellectual curiosity and interests. They never lie, and they know more than you do about what is worth paying attention to.](https://paulgraham.com/greatwork.html)
 
   
 
