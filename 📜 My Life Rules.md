@@ -43,7 +43,7 @@ Believe in yourself. Have almost too much self-belief.
   
 
 
-Always dream big and think big. If your dreams don't scare you, you are not dreaming big enough.
+Always dream big and think big. If your dreams don't scare you, you are not dreaming big enough. [The people who are crazy enough to think they can change the world are the ones that do.](https://www.goodreads.com/quotes/9859550-the-people-who-are-crazy-enough-to-think-they-can)
 
   
 
