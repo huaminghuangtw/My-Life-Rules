@@ -68,7 +68,7 @@ Deliberately train yourself to be very good at suffering, uncommonly resilient, 
   
 
 
-Act as if today is your last day on Earth. Learn as if you were to live forever.
+[Live as if today is your last day on Earth. Learn as if you were to live forever.](https://www.goodreads.com/quotes/2253-live-as-if-you-were-to-die-tomorrow-learn-as)
 
   
 
