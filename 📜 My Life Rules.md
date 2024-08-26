@@ -83,7 +83,7 @@ Try to learn something from everyone and everything every day. Learn from those 
   
 
 
-Never, ever stop learning. If you are not growing, you are dying. If you don't learn, you can't change, and if you are not changing, what is the point of being here? Think about it again! Cherish this massive birth gift. Always have faith in your capability learn new skills, no matter how hard the task seems. There is a universe of knowledge around you waiting to be explored and discovered.
+Never, ever stop learning. If you are not growing, you are dying. [If you don't learn, you can't change, and if you are not changing, what is the point of being here?](https://x.com/librarymindset/status/1530100260361539589) Think about it again! Cherish this massive birth gift. Always have faith in your capability learn new skills, no matter how hard the task seems. There is a universe of knowledge around you waiting to be explored and discovered.
 
  
 
