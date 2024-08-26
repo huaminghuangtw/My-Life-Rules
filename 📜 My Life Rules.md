@@ -53,7 +53,7 @@ Deliberately train yourself to be very good at suffering, uncommonly resilient, 
   
 
 
-Never lose the faith, no matter what sort of difficulties, how tough or painful experience is. Remember, if you lose your hope, that’s your real disaster.
+[Never lose the faith, no matter what sort of difficulties, how tough or painful experience is. Remember, if you lose your hope, that’s your real disaster.](https://www.goodreads.com/quotes/33164-there-is-a-saying-in-tibetan-tragedy-should-be-utilized)
 
   
 
