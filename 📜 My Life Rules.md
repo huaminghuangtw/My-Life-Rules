@@ -23,7 +23,17 @@ Be obsessed with being the best in the world at whatever you do professionally. 
   
 
 
-Do not limit or cage yourself. You are capable of much more than you could imagine. Identify your capability gap and then work relentlessly to close it.
+Do not limit or cage yourself. You are capable of much more than you could imagine. 
+
+  
+
+
+Old ways won't open new doors. If you want something you've never had, you must be willing to do something you've never done.
+
+  
+
+
+Try to identify your capability gap and work relentlessly to close it.
 
   
 
@@ -632,7 +642,7 @@ Live in the present. Let past go. Look towards the future. Anything outside of t
   
 
 
-Surround yourself with people you love and admire. Put yourself into rooms with a high density of value-aligned individuals. Reach out to inspiring people who are going to uplift you higher and living the life you want to live. Find people who are genuinely rooting for you to succeed and truly wanting to see you to win. Hold on to these people like your life depends on them.
+Surround yourself with people you love and admire. Put yourself in rooms you don't belong to; in rooms with a high density of value-aligned individuals. Reach out to inspiring people who are going to uplift you higher and living the life you want to live. Find people who are genuinely rooting for you to succeed and truly wanting to see you to win. Hold on to these people like your life depends on them.
 
   
 
