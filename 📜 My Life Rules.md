@@ -13,7 +13,7 @@ Always give your best, even when no one is watching. It's not just about shining
   
 
 
-Be obsessed with being the best in the world at whatever you do professionally. [Go all-in on your obsession. It’s what you were born to do.](https://timdenning.com/all-in-on-obsession/) Wherever you go, go with all your heart. Hold yourself responsible for a higher standard than anybody expects of you.
+Be obsessed with being the best in the world at whatever you do professionally. [Go all-in on your obsession. It’s what you were born to do.](https://timdenning.com/all-in-on-obsession/) Never do half-reps. Wherever you go, go with all your heart. Otherwise, you’ll always have to wonder what would have happened if you gave it absolutely everything. Hold yourself responsible for a higher standard than anybody expects of you.
 
   
 
@@ -212,7 +212,7 @@ Embrace the uncertainty and randomness. Don't fixate on anything. When nothing i
   
 
 
-[In life, the only constant is change.](https://www.youtube.com/watch?v=4q1dgn_C0AU) Your life doesn't get better by chance, it gets better by change. The first step toward change is awareness. The second step is acceptance. Be ready to transform yourself completely into another person, and be ready to be in an internal state of self-revolution at any time. Be dynamic, adaptable, and open-minded. Don't settle. Move. You are not a tree!
+[In life, the only constant is change.](https://www.youtube.com/watch?v=4q1dgn_C0AU) Your life doesn't get better by chance, it gets better by change. The first step toward change is awareness. The second step is acceptance. Be ready to transform yourself completely into another person, and be ready to be in an internal state of self-revolution at any time. Strong opinions, loosely held. Be dynamic, adaptable, and open-minded. Don't settle. Progress is about moving forward. Move. You are not a tree!
 
   
 
@@ -327,6 +327,11 @@ Work hard. Work very hard. Work very hard every waking hour. But not every day. 
   
 
 
+Don't seek shortcuts. The only shortcut is doing something the right way the first time so that you don’t waste any time on the shortcuts. [If you want to be good, you don't really have a lot of choices. It takes what it takes. You have to do what you have to do to be successful.](https://m.youtube.com/watch?v=R0CAAlMo3f8) Do what is necessary. Do what is required.
+
+  
+
+
 In the mean time, try to accomplish things with the least amount of effort. Find the easiest way first. Do the simplest thing first. Move fast.
 
   
@@ -337,7 +342,7 @@ In the mean time, try to accomplish things with the least amount of effort. Find
   
 
 
-[Most of life is a search for who and what needs you the most.](https://x.com/naval/status/797865441783709696?lang=en) Serve for the community. Try your best to be useful and helpful to the society, the world, the universe. Your goal is to become a person of value, not a person of success. Inspire and help others, however you can.
+[Most of life is a search for who and what needs you the most.](https://x.com/naval/status/797865441783709696?lang=en) Serve for the community. Try your best to be useful and helpful to the society, the world, the universe. Your goal is to become a person of value, not a person of success. Inspire and help others, however you can. [It doesn't matter how many people don't get it. What matters is how many people do.](https://tim.blog/2008/12/31/things-ive-learned-and-loved-in-2008/)
 
   
 
@@ -393,11 +398,6 @@ Stop avoiding the uncomfortable work you need to do. Do what you are most afraid
 
 
 [The magic you are looking for is in the work you are always avoiding.](https://www.youtube.com/shorts/E0SkEQ1e3P0) [The cave you fear to enter holds the treasure you seek.](https://www.goodreads.com/quotes/192665-the-cave-you-fear-to-enter-holds-the-treasure-you) Gather information and confront your fears.
-
-  
-
-
-[If you want to be good, you don't really have a lot of choices. It takes what it takes. You have to do what you have to do to be successful.](https://m.youtube.com/watch?v=R0CAAlMo3f8) Do what is necessary. Do what is required.
 
   
 
@@ -507,7 +507,7 @@ Don’t lie. Be honest and authentic, especially with yourself. Speak with integ
   
 
 
-The most damning lie is the lie you tell yourself. Always tell yourself the truth.
+The most damning lie is the lie you tell yourself. Always tell yourself the brutal truth.
 
   
 
@@ -577,7 +577,7 @@ Accept everything. Judge nothing. Find beauty in everything.
   
 
 
-Happiness comes from being grateful for what you already have. Being upset over what you don't have is to waste what you do have. Never let the things you want make you forget the things you already have. [Remember that what you now have was once among the things you only hoped for.](https://www.goodreads.com/quotes/169009-do-not-spoil-what-you-have-by-desiring-what-you) Your life is already amazing, and it's lucky that you even exist and breathe right now.
+Happiness comes from being grateful for what you already have. Being upset over what you don't have is to waste what you do have. Never let the things you want make you forget the things you already have. You have to want what you already have. [Remember that what you now have was once among the things you only hoped for.](https://www.goodreads.com/quotes/169009-do-not-spoil-what-you-have-by-desiring-what-you) Your life is already amazing, and it's lucky that you even exist and breathe right now.
 
   
 
@@ -607,12 +607,17 @@ Smile often. Laugh more. A day without laughter is a day wasted. Be funny. Be pl
   
 
 
-Stop taking things so seriously. Literally, in three generations, no one will even remember your name.
+Stop taking things so seriously. Literally, in three generations, no one will even remember your name. Learn to laugh at yourself. The more you can laugh at yourself, the happier you'll be.
 
   
 
 
-Take a deep breath. Relax. Enjoy each moment in life. Let shit go. Choose to be happy. You can't wait until life isn’t hard anymore, before you decide to be happy. You live longer once you realize that any time spent being unhappy is wasted.
+Take a deep breath. Relax. Enjoy each moment in life. [Life moves pretty fast. If you don't stop and look around once in a while, you could miss it.](https://www.youtube.com/watch?v=vsYBtfQ3QDo)
+
+  
+
+
+Let shit go. Choose to be happy. You can't wait until life isn’t hard anymore, before you decide to be happy. You live longer once you realize that any time spent being unhappy is wasted.
 
   
 
@@ -642,7 +647,7 @@ Live in the present. Let past go. Look towards the future. Anything outside of t
   
 
 
-Surround yourself with people you love and admire. Put yourself in rooms you don't belong to; in rooms with a high density of value-aligned individuals. Reach out to inspiring people who are going to uplift you higher and living the life you want to live. Find people who are genuinely rooting for you to succeed and truly wanting to see you to win. Hold on to these people like your life depends on them.
+Surround yourself with people you love and admire; with people who think differently than you. Put yourself in rooms you don't belong to; in rooms with a high density of value-aligned individuals. Reach out to inspiring people who are going to uplift you higher and living the life you want to live. Find people who are genuinely rooting for you to succeed and truly wanting to see you to win. Hold on to these people like your life depends on them.
 
   
 
