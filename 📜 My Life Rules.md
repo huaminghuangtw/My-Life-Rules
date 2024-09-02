@@ -43,7 +43,7 @@ Never say never. You don't know what you don't know, the unknown unknowns.
   
 
 
-Believe in yourself. Have almost too much self-belief.
+[Believe in yourself. If you don’t believe in yourself, it’s hard to let yourself have contrarian ideas about the future. Have almost too much self-belief, and balance it with self-awareness.](https://blog.samaltman.com/how-to-be-successful)
 
   
 
@@ -162,7 +162,7 @@ Let your heart speak. Listen to your instinct. If your heart isn’t in it, do
   
 
 
-Don't let the noise of others' opinions drown out your own inner voice. A lion doesn't concern himself with the opinions of the sheep. Bees don't waste their time explaining to flies that honey is better than shit. Your time is so limited. Don’t waste it living someone else’s life.
+[Don't let the noise of others' opinions drown out your own inner voice.](https://www.goodreads.com/quotes/445287-don-t-let-the-noise-of-others-opinions-drown-out-your) A lion doesn't concern himself with the opinions of the sheep. Bees don't waste their time explaining to flies that honey is better than shit. Your time is so limited. Don’t waste it living someone else’s life.
 
   
 
@@ -197,22 +197,27 @@ If you spend your time chasing butterflies, they'll fly away. But if you spend y
   
 
 
-Just do yourself. [No one will ever be as good at being you than you are. No one can compete with you on being you.](https://x.com/naval/status/797865441783709696?lang=en) You are always going to win the "YOU" game.
+Just do yourself. [No one will ever be as good at being you than you are. No one can compete with you on being you.](https://x.com/naval/status/797865441783709696?lang=en) The only person you have to compete against is yourself.
 
   
 
 
-Be confident, bold, and fearless. Take ownership and responsibility. Be decisive.
+Focus on the internal, not the external. Be primarily internally driven. You don't need to impress anyone but yourself. You become inhumanly strong when you try to impress only one person: YOU. You are always going to win the "YOU" game.
 
   
 
 
-Embrace the uncertainty and randomness. Don't fixate on anything. When nothing is certain, anything is possible.
+Be confident, bold, and fearless. Take ownership and responsibility. Be decisive. Trust your gut. Remember that no one has it all figured out.
 
   
 
 
-[In life, the only constant is change.](https://www.youtube.com/watch?v=4q1dgn_C0AU) Your life doesn't get better by chance, it gets better by change. The first step toward change is awareness. The second step is acceptance. Be ready to transform yourself completely into another person, and be ready to be in an internal state of self-revolution at any time. Strong opinions, loosely held. Be dynamic, adaptable, and open-minded. Don't settle. Progress is about moving forward. Move. You are not a tree!
+[In life, the only constant is change.](https://www.youtube.com/watch?v=4q1dgn_C0AU) Your life doesn't get better by chance, it gets better by change. The first step toward change is awareness. The second step is acceptance. Be ready to transform yourself completely into another person, and be ready to be in an internal state of self-revolution at any time. Strong opinions, loosely held. Be dynamic, adaptable, and open-minded. Don't settle. Don't fixate on anything. Progress is about moving forward. Move. You are not a tree!
+
+  
+
+
+Embrace the uncertainty and randomness in life. Accept things the way as they are. When nothing is certain, everything is possible.
 
   
 
@@ -277,12 +282,7 @@ Pursue your goals aggressively and relentlessly. There is no compromise. [Don't 
   
 
 
-If you want something—and you’ve done the work to earn it—go ask for it. Closed mouths don't get fed. In life, you don't get what you deserve, you get what you think you deserve.
-
-  
-
-
-Meanwhile, don't ask for any permission. Just tap yourself on the shoulder and do the work directly. If you live for people's approval, you will die from their rejection.
+If you want something—and you’ve done the work to earn it—go ask for it. Closed mouths don't get fed. In life, you don't get what you deserve, you get what you think you deserve. Ask for forgiveness, not permission. Just tap yourself on the shoulder and do the work directly. If you live for people's approval, you will die from their rejection.
 
   
 
@@ -352,22 +352,22 @@ You are playing an infinite and lifelong game. Everything important is uncertain
   
 
 
+Do things no one cares about but you. Do the old fashioned things well. Do foolish things that don't scale with enthusiasm. Those stupid, meaningless obsessions are all worth it in the end, because once you get there, you can move mountains and bend the world.
+
+  
+
+
+[Start where you are. Use what you have. Do what you can.](https://www.goodreads.com/quotes/9743989-start-where-you-are-use-what-you-have-do-what) Focus on what you can control. Your time will finally come. The things you've been waiting for will finally come. Just keep your perseverance and patience. Remember: [A man who is a master of patience is master of everything else.](https://www.goodreads.com/quotes/7564496-a-man-who-is-the-master-of-patience-is-the)
+
+  
+
+
 In this life journey, you will fail many times, but you will be really right once. You will have lots of troubles in life, and most of which will never happen.
 
   
 
 
-Do things no one cares about but you. Do the old fashioned things well. Do foolish things that don't scale with enthusiasm. Those stupid, meaningless obsessions are all worth it in the end, because once you get there, you can move mountains and move the world.
-
-  
-
-
-[Start where you are. Use what you have. Do what you can.](https://www.goodreads.com/quotes/9743989-start-where-you-are-use-what-you-have-do-what) Focus on what you can control. Your time will finally come. The things you've been waiting for will finally come. Just keep persevering and be patient. Remember: A man who is a master of patience is master of everything else.
-
-  
-
-
-You are always just one good decision away from being in a better place tomorrow—just focus on the next decision. [Just begin. Solve one problem. Then solve the next one. And the next.](https://www.youtube.com/watch?v=mDYCLFE86Po)
+You are always just one good decision away from being in a better place tomorrow—just focus on the next decision. [Just begin. Solve one problem. Then solve the next one. And the next one. Eventually you will solve all problems.](https://www.youtube.com/watch?v=mDYCLFE86Po)
 
   
 
@@ -392,7 +392,7 @@ Optimize for long term growth over short term gains. Optimize for fun and joy ov
   
 
 
-Stop avoiding the uncomfortable work you need to do. Do what you are most afraid to do first because it is usually the thing you need to do most.
+Stop avoiding the uncomfortable work you need to do. Do what scares you; what you are most afraid to do because it is usually the thing you need to do most.
 
   
 
@@ -437,7 +437,7 @@ Life is hard. Choose your hard. Use the difficulty. Find your edge. Remember tha
   
 
 
-Slow down and calm down to select opportunities and activities with the highest leverage and return on investments. Do things slowly, incrementally, and methodically. Always make sure you have clean thinking and extreme clarity in mind prior any effort. If you slow down, you'll speed up.
+Slow down and calm down to select opportunities and activities with the highest leverage and return on investments. Do things strategically, incrementally, and methodically. Always make sure you have clean thinking and extreme clarity in mind prior any effort. If you slow down, you'll speed up.
 
   
 
@@ -517,12 +517,12 @@ Know who you are. Love yourself. Value yourself. Forgive yourself. Make time for
   
 
 
-Don’t take anything personally. Never let any words hurt you. Don’t care what other people might think of you. If you try to please everyone—you will please no one. If you say YES to everyone else, you're saying NO to yourself.
+Don’t take anything personally. Never let any words hurt you. Don’t care what other people might think of you. If you try to please everyone—you will please no one. Never try to impress people you don’t like.
 
   
 
 
-Think deeply. Think in a different time frame, horizon, scale, and dimension.
+Think deeply. Think independently. Think in a different time frame, horizon, scale, and dimension. Think long term.
 
   
 
@@ -537,17 +537,17 @@ Guard your time and take care of your brain (the software) and body (the hardwar
   
 
 
-Never ever sacrifice your sleep. Don't limit sleep length. Sleep as much as your body needs. Sleep is the best legal performance enhancing drug on the planet. Listen to your body. Always make sure you get enough of eight hours of sleep each night.
+Never ever sacrifice your sleep. Don't limit sleep length. Sleep as much as your body needs. Sleep is the best legal performance enhancing drug on the planet. Listen to your body. Always make sure you get enough of seven to eight hours of sleep each night.
 
   
 
 
-Move your body. [Tame your mind. ](https://www.youtube.com/watch?v=UlAPNQN2-Fw)Meditate, journal, go for a walk or do micro exercises throughout the day.
+Move your body. [Tame your mind.](https://www.youtube.com/watch?v=UlAPNQN2-Fw) Meditate, journal, go for a walk or do micro exercises throughout the day.
 
   
 
 
-Take more breaks, but not too long. Use yoga, stretching, and foam roller massage as often when necessary. They reduce your tension, anxiety, or stress, and help you to relax for better productivity and creativity.
+Take more breaks, but not too long. Use yoga, stretching, and foam roller massage as often when necessary. They reduce your tension, anxiety, or stress, and could help you to relax for better productivity and creativity.
 
   
 
@@ -622,7 +622,7 @@ Let shit go. Choose to be happy. You can't wait until life isn’t hard anymore,
   
 
 
-[Be optimistic.](https://www.youtube.com/watch?v=FrqBWQ-mVEc) Stop being afraid of what could go wrong, and start being positive about what could go right. Focus on the positives.
+[Be optimistic and willful.](https://www.youtube.com/watch?v=FrqBWQ-mVEc) Stop being afraid of what could go wrong, and start being positive about what could go right. Focus on the positives.
 
   
 
@@ -697,7 +697,7 @@ Be kind, gentle, and friendly. Every single person is fighting a battle you know
   
 
 
-When you think something nice about someone, tell them. Don't hold any unexpressed love until the last day of your life. Leave a positive review. Leave a compliment for someone, no matter how small it is. Make the coffee.
+When you think something nice about someone, tell them right away. Don't hold any unexpressed love until the last day of your life. Leave a positive review. Leave a compliment for someone, no matter how small it is. Make the coffee.
 
   
 
