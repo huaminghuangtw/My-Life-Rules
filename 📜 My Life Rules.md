@@ -13,7 +13,7 @@ Always give your best, even when no one is watching. It's not just about shining
   
 
 
-Be obsessed with being the best in the world at whatever you do professionally. [Go all-in on your obsession. It’s what you were born to do.](https://timdenning.com/all-in-on-obsession/) Never do half-reps. Wherever you go, go with all your heart. Otherwise, you’ll always have to wonder what would have happened if you gave it absolutely everything. Hold yourself responsible for a higher standard than anybody expects of you.
+Be obsessed with being the best in the world at whatever you do professionally. [Go all-in on your obsession. It’s what you were born to do.](https://timdenning.com/all-in-on-obsession/) Never do half-reps. Wherever you go, go with all your heart. Otherwise, you’ll always have to wonder what would have happened if you emptied your tank and gave it absolutely everything. Hold yourself responsible for a higher standard than anybody expects of you.
 
   
 
@@ -232,7 +232,7 @@ There is no such thing as a perfect you. It's all about optimization. And optimi
   
 
 
-[Keep your identity small.](https://paulgraham.com/identity.html) Listen to constructive negative feedback and criticism. Seek for the truth. No ego. Be humble. Be coachable. When you let go of what you are, you become what you might be. Enjoy being wrong or looking/sounding “stupid” in a public setting. Embrace that beginner's embarrassment. Approach everything with a beginner's mind.
+[Keep your identity small.](https://paulgraham.com/identity.html) Listen to constructive negative feedback and criticism. Seek for the truth. No ego. Be humble. Be coachable. When you let go of what you are, you become what you might be. Enjoy being wrong or looking/sounding "stupid" in a public setting. Embrace that beginner's embarrassment. Approach everything with a beginner's mind.
 
   
 
@@ -317,7 +317,7 @@ Knowledge is useless until you act on it. It's not enough to know something. You
   
 
 
-Enjoy the process. Trust the exponential growth and super-linear returns for performance. Journey over destination. Never take little progress for granted. Aim to be consistently good rather than occasionally great.
+Enjoy the process. Trust the exponential growth and non-linear, asymmetric results. Journey over destination. Never take little progress for granted. Aim to be consistently good rather than occasionally great.
 
   
 
@@ -407,7 +407,7 @@ Don't wait. Don't tell yourself you'll warm up to it. Do it now. Do it first. Th
   
 
 
-[Discipline now, freedom later.](https://dailystoic.com/discipline-nowfreedom-later/) [Only the disciplined ones in life are free.](https://www.youtube.com/shorts/hywDs1dhTOI) The labor will pass, but the rewards will last.
+[Discipline now, freedom later.](https://x.com/RyanHoliday/status/1698727749165387969) [Only the disciplined ones in life are free.](https://www.youtube.com/shorts/hywDs1dhTOI) The labor will pass, but the rewards will last.
 
   
 
