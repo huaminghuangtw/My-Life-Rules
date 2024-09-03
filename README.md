@@ -1,6 +1,8 @@
 🚀 Your Pocket Life Coach
 =========================
 
+> _"We are what we repeatedly do every day. Excellence, then, is not an act, but a habit." — Will Durant_  
+
 Welcome to **Your Pocket Life Coach**, a personal life coach in your pocket!
 
 ## 🌟 Why This Project
