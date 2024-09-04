@@ -317,7 +317,7 @@ Knowledge is useless until you act on it. It's not enough to know something. You
   
 
 
-Enjoy the process. Trust the exponential growth and non-linear, asymmetric results. Journey over destination. Never take little progress for granted. Aim to be consistently good rather than occasionally great.
+Enjoy the process. The journey is the reward. Trust the exponential growth and non-linear, asymmetric results. Never take little progress for granted. Aim to be consistently good rather than occasionally great.
 
   
 
@@ -597,7 +597,7 @@ There is no such achievement you could possibly achieve that will make you any h
   
 
 
-[Life is only 4000 weeks long.](https://www.amazon.de/-/en/Oliver-Burkeman/dp/0374159122) Make the rest of your life the best of your life. [Don't live the same year 75 times and call it a life.](https://www.goodreads.com/quotes/1346035-don-t-live-the-same-year-75-times-and-call-it) Inject some planned spontaneity and adventures into your days. Every time you do something that is one less time you could do it — cherish every moment of your life like it is your last — because it very well might be. Every single thing you do today is something that your ninety-year-old self would wish they could go back and do. The good old days are happening RIGHT NOW.
+[Life is only 4000 weeks long.](https://www.amazon.de/-/en/Oliver-Burkeman/dp/0374159122) Make the rest of your life the best of your life. [Don't live the same year 75 times and call it a life.](https://www.goodreads.com/quotes/1346035-don-t-live-the-same-year-75-times-and-call-it) Inject some planned spontaneity and adventures into your days. Every time you do something that is one less time you could do it — cherish every moment of your life like it is your last — because it very likely might be. Every single thing you do today is something that your ninety-year-old self would wish they could go back and do. The good old days are happening RIGHT NOW.
 
   
 
@@ -672,7 +672,7 @@ Don't avoid hard conversations. Any effort you spend on cultivating deep relatio
   
 
 
-Don’t hate anyone. Don't insult anyone. Only take shots at things, not people. Be soft on the person and hard on the problem. Do no harm, but take no shit and crap. Set boundaries.
+Don’t hate anyone. Don't insult anyone. Only take shots at things, not people. Judge yourself by action, but judge others by intention. Be soft on the person and hard on the problem. Do no harm, but take no shit and crap. Set boundaries.
 
   
 
