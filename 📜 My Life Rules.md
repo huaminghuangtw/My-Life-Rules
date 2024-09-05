@@ -8,7 +8,7 @@ Try to be the best version of yourself as you possibly can—that's the reason w
   
 
 
-Always give your best, even when no one is watching. It's not just about shining. It's about fueling your energy and boosting your confidence. At the end of the day, you can rest easy knowing you have made the effort to do the best of which you're capable and gave it your all.
+Always give your best, even when no one is watching. It's not just about shining. It's about fueling your energy and boosting your confidence. At the end of the day, you can lay down and rest easy knowing you have made the best of which you're capable and gave it your all.
 
   
 
@@ -202,7 +202,7 @@ Just do yourself. [No one will ever be as good at being you than you are. No one
   
 
 
-Focus on the internal, not the external. Be primarily internally driven. You don't need to impress anyone but yourself. You become inhumanly strong when you try to impress only one person: YOU. You are always going to win the "YOU" game.
+Focus on the internal scorecard, not the external validation. Be primarily internally driven. You don't need to impress anyone but yourself. You become inhumanly strong when you try to impress only one person: YOU. You are always going to win the "YOU" game.
 
   
 
@@ -232,7 +232,7 @@ There is no such thing as a perfect you. It's all about optimization. And optimi
   
 
 
-[Keep your identity small.](https://paulgraham.com/identity.html) Listen to constructive negative feedback and criticism. Seek for the truth. No ego. Be humble. Be coachable. When you let go of what you are, you become what you might be. Enjoy being wrong or looking/sounding "stupid" in a public setting. Embrace that beginner's embarrassment. Approach everything with a beginner's mind.
+[Keep your identity small.](https://paulgraham.com/identity.html) Listen to constructive negative feedback and criticism. Seek for the truth. No ego. Be humble. Be coachable. When you let go of what you are, you become what you might be. Enjoy being wrong or looking/sounding "stupid" in a public setting. Embrace that beginner's embarrassment. Approach everything with a beginner's mind. [It's always Day One.](https://www.youtube.com/watch?v=fTwXS2H_iJo&ab_channel=AmazonNews)
 
   
 
@@ -262,7 +262,7 @@ Never give up. Never make the same mistake. Adapt to changes. Learn from failure
   
 
 
-If something is wrong, fix it now, but train yourself not to worry. Worry is wasted. It only drains your energy. Worry fixes nothing. Worrying does not take away tomorrow's troubles, but it takes away today's peace. Deal with the big while it is still small.
+If something is wrong, fix it now, but train yourself not to worry. Time spent worrying is time wasted. It only drains your energy. Worry fixes nothing. Worrying does not take away tomorrow's troubles, but it takes away today's peace. Deal with the big while it is still small.
 
   
 
@@ -317,7 +317,7 @@ Knowledge is useless until you act on it. It's not enough to know something. You
   
 
 
-Enjoy the process. The journey is the reward. Trust the exponential growth and non-linear, asymmetric results. Never take little progress for granted. Aim to be consistently good rather than occasionally great.
+You got to fall in love with the process. The journey is the reward. Trust the exponential growth and non-linear, asymmetric results. Never take little progress for granted. Aim to be consistently good rather than occasionally great.
 
   
 
@@ -577,12 +577,12 @@ Accept everything. Judge nothing. Find beauty in everything.
   
 
 
-Happiness comes from being grateful for what you already have. Being upset over what you don't have is to waste what you do have. Never let the things you want make you forget the things you already have. You have to want what you already have. [Remember that what you now have was once among the things you only hoped for.](https://www.goodreads.com/quotes/169009-do-not-spoil-what-you-have-by-desiring-what-you) Your life is already amazing, and it's lucky that you even exist and breathe right now.
+Happiness comes from being grateful for what you already have. Being upset over what you don't have is to waste what you do have. Never let the things you want make you forget the things you already have. You have to want what you already have. [Remember that what you now have was once among the things you only hoped for.](https://www.goodreads.com/quotes/169009-do-not-spoil-what-you-have-by-desiring-what-you)
 
   
 
 
-[Don’t let the pursuit of more stop you from enjoying what you already have.](https://aliabdaal.com/newsletter/30-lessons-for-my-30s/) [Never let the quest for more distract you from the beauty of enough.](https://x.com/SahilBloom/status/1607057493762658306?lang=en) Enough is enough. Moderation/Harmony is key.
+[If you look at what you have in life, you'll always have more. If you look at what you don't have in life, you'll never have enough.](https://www.goodreads.com/quotes/10179235-if-you-look-at-what-you-have-in-life-you-ll) [Don’t let the pursuit of more stop you from enjoying what you already have.](https://aliabdaal.com/newsletter/30-lessons-for-my-30s/) [Never let the quest for more distract you from the beauty of enough.](https://x.com/SahilBloom/status/1607057493762658306?lang=en) Enough is enough. Moderation/Harmony is key.
 
   
 
