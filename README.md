@@ -38,11 +38,11 @@ Follow the steps below to start using the **Your Pocket Life Coach** Apple Short
 
 We believe in the power of [learning (and building) in public](https://www.swyx.io/learn-in-public). If you have additional life advice (with source link) that you think could fit in the script, feel free to contribute!
 
-[Fork this repository](https://github.com/huaminghuangtw/Your-Pocket-Life-Coach/fork), [create a pull request](https://github.com/huaminghuangtw/Your-Pocket-Life-Coach/compare) with your additions, or [open an issue](https://github.com/huaminghuangtw/Your-Pocket-Life-Coach/issues) to share your ideas, suggestions, or feedback. Your contributions can help **Your Pocket Life Coach** even better!
+[Fork this repository](https://github.com/huaminghuangtw/Your-Pocket-Life-Coach/fork), [create a pull request](https://github.com/huaminghuangtw/Your-Pocket-Life-Coach/compare) with your additions, or [open an issue](https://github.com/huaminghuangtw/Your-Pocket-Life-Coach/issues/new) to share your ideas, suggestions, or feedback. Your contributions can help **Your Pocket Life Coach** even better!
 
 ## 📧 Get in Touch
 
-Have questions or need support? Reach out via [GitHub Issues](https://github.com/huaminghuangtw/Your-Pocket-Life-Coach/issues) or contact me directly through [huaming.huang.tw@gmail.com](mailto:huaming.huang.tw@gmail.com).
+Have questions or need support? Reach out via [GitHub Issues](https://github.com/huaminghuangtw/Your-Pocket-Life-Coach/issues/new) or contact me directly through [huaming.huang.tw@gmail.com](mailto:huaming.huang.tw@gmail.com).
 
 ## 📜 License
 
