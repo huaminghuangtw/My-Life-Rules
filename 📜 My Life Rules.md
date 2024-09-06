@@ -192,7 +192,7 @@ Be the master of your fate. Be the captain of your soul. Own your power, influen
   
 
 
-If you spend your time chasing butterflies, they'll fly away. But if you spend your time making/mending a beautiful garden, the butterflies will come. [You should be too busy working on your grass to notice others is greener. Water your own grass.](https://www.reddit.com/r/GetMotivated/comments/fk2pol/image_im_too_busy_working_on_my_own_grass_to/)
+If you spend your time chasing butterflies, they'll fly away. But if you spend your time making/mending a beautiful garden, the butterflies will come. [You should be too busy working on your grass to notice others is greener. Water your own grass.](https://www.reddit.com/r/GetMotivated/comments/fk2pol/image_im_too_busy_working_on_my_own_grass_to/) Focus on bettering yourself.
 
   
 
@@ -327,7 +327,7 @@ Work hard. Work very hard. Work very hard every waking hour. But not every day. 
   
 
 
-Don't seek shortcuts. The only shortcut is doing something the right way the first time so that you don’t waste any time on the shortcuts. [If you want to be good, you don't really have a lot of choices. It takes what it takes. You have to do what you have to do to be successful.](https://m.youtube.com/watch?v=R0CAAlMo3f8) Do what is necessary. Do what is required.
+Don't seek shortcuts. The only shortcut is doing something the right way the first time so that you don’t waste any time on the shortcuts. The only "hack" is relentless consistency. [If you want to be good, you don't really have a lot of choices. It takes what it takes. You have to do what you have to do to be successful.](https://m.youtube.com/watch?v=R0CAAlMo3f8) Do what is necessary. Do what is required.
 
   
 
