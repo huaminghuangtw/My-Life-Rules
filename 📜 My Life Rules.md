@@ -157,7 +157,7 @@ Let your heart speak. Listen to your instinct. If your heart isn’t in it, do
   
 
 
-[Life shrinks or expands in proportion to one's courage.](https://x.com/tferriss/status/1771644332367327414#) Twenty years from now you will regret and be more disappointed by the things that you didn't do than by the ones you did do.
+[Life shrinks or expands in proportion to one's courage.](https://x.com/tferriss/status/1771644332367327414#) [Twenty years from now you will regret and be more disappointed by the things that you didn't do than by the ones you did do.](https://www.youtube.com/watch?v=jwG_qR6XmDQ)
 
   
 
