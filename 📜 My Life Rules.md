@@ -43,7 +43,7 @@ Never say never. You don't know what you don't know, the unknown unknowns.
   
 
 
-[Believe in yourself. If you don’t believe in yourself, it’s hard to let yourself have contrarian ideas about the future. Have almost too much self-belief, and balance it with self-awareness.](https://blog.samaltman.com/how-to-be-successful)
+[Believe in yourself. If you don’t believe in yourself, it’s hard to let yourself have contrarian ideas about the future. Have almost too much self-belief, and balance it with self-awareness.](https://blog.samaltman.com/how-to-be-successful) Your belief system is critical to how you perform and respond to challenges.
 
   
 
@@ -53,7 +53,7 @@ Never say never. You don't know what you don't know, the unknown unknowns.
   
 
 
-Always dream big and think big. If your dreams don't scare you, you are not dreaming big enough. [The people who are crazy enough to think they can change the world are the ones that do.](https://www.goodreads.com/quotes/9859550-the-people-who-are-crazy-enough-to-think-they-can)
+[Always dream big and think big.](https://www.goodreads.com/book/show/759945.The_Magic_of_Thinking_Big) If your dreams don't scare you, you are not dreaming big enough. [The people who are crazy enough to think they can change the world are the ones that do.](https://www.goodreads.com/quotes/9859550-the-people-who-are-crazy-enough-to-think-they-can)
 
   
 
@@ -207,7 +207,7 @@ Focus on the internal scorecard, not the external validation. Be primarily inter
   
 
 
-Be confident, bold, and fearless. Take ownership and responsibility. Be decisive. Trust your gut. Remember that no one has it all figured out.
+Be confident, bold, and fearless. Always  https://www.youtube.com/watch?v=Ks-_Mh1QhMcTake ownership and responsibility. Be decisive. Trust your gut. Remember that no one has it all figured out.
 
   
 
@@ -232,7 +232,7 @@ There is no such thing as a perfect you. It's all about optimization. And optimi
   
 
 
-[Keep your identity small.](https://paulgraham.com/identity.html) Listen to constructive negative feedback and criticism. Seek for the truth. No ego. Be humble. Be coachable. When you let go of what you are, you become what you might be. Enjoy being wrong or looking/sounding "stupid" in a public setting. Embrace that beginner's embarrassment. Approach everything with a beginner's mind. [It's always Day One.](https://www.youtube.com/watch?v=fTwXS2H_iJo&ab_channel=AmazonNews)
+[Keep your identity small.](https://paulgraham.com/identity.html) Listen very carefully to constructive negative feedback and criticism. Seek for the truth. No ego. Be humble. Be coachable. When you let go of what you are, you become what you might be. Enjoy being wrong or looking/sounding "stupid" in a public setting. Embrace that beginner's embarrassment. Approach everything with a beginner's mind. [It's always Day One.](https://www.youtube.com/watch?v=fTwXS2H_iJo&ab_channel=AmazonNews)
 
   
 
@@ -267,7 +267,7 @@ If something is wrong, fix it now, but train yourself not to worry. Time spent w
   
 
 
-If you don't like something, change it. If you can't change it, change your attitude. Never complain about anything. [Everything is your fault.](https://www.amazon.de/-/en/Jocko-Willink/dp/1250183863) Don't make any excuses. Things that are not your fault can still be your responsibility.
+You always have 3 options in any circumstance/situation in life: change it, accept it, or leave it. If you don't like something, change it. If you can't change it, change your attitude. Never complain about anything. [Everything is your fault.](https://www.amazon.de/-/en/Jocko-Willink/dp/1250183863) Don't make any excuses. Things that are not your fault can still be your responsibility.
 
   
 
@@ -342,7 +342,7 @@ In the mean time, try to accomplish things with the least amount of effort. Find
   
 
 
-[Most of life is a search for who and what needs you the most.](https://x.com/naval/status/797865441783709696?lang=en) Serve for the community. Try your best to be useful and helpful to the society, the world, the universe. Your goal is to become a person of value, not a person of success. Inspire and help others, however you can. [It doesn't matter how many people don't get it. What matters is how many people do.](https://tim.blog/2008/12/31/things-ive-learned-and-loved-in-2008/)
+[Most of life is a search for who and what needs you the most.](https://x.com/naval/status/797865441783709696?lang=en) Serve for the community. Try your best to be useful and helpful to the society, the world, the universe. Your goal is to become a person of value, not a person of success. Inspire and help others, however you can. [It doesn't matter how many people don't get it. What matters is how many people do it.](https://tim.blog/2008/12/31/things-ive-learned-and-loved-in-2008/)
 
   
 
@@ -467,7 +467,7 @@ Separate planning from doing. Life is what happens when you're busy making other
   
 
 
-The main thing is to keep the main thing main thing. Choose important over urgent. Don't sweat the small stuff. Don't major in the minor things. The trick is letting go of the minors and focus on your priorities.
+The main thing is to keep the main thing main thing. Choose important over urgent. Don't sweat the small stuff. Don't major in the minor things. The trick is letting go of the minors and focus on your priorities. [Learn to let the small, bad things happen and meke the huge, great things happen.](https://tim.blog/2007/10/25/weapons-of-mass-distractions-and-the-art-of-letting-bad-things-happen/)
 
   
 
@@ -532,7 +532,7 @@ Try to make as many right and wise choices as you possibly can. Try to make as m
   
 
 
-Guard your time and take care of your brain (the software) and body (the hardware) — they are all you have on this planet. Make it non-negotiable to prioritize your sleep, exercise, and nutrition.
+Guard your time and take care of your brain (the software) and body (the hardware). A sound mind needs a sound body. Make it non-negotiable to prioritize your sleep, exercise, and nutrition.
 
   
 
@@ -627,7 +627,7 @@ Let shit go. Choose to be happy. You can't wait until life isn’t hard anymore,
   
 
 
-Don't worry about bullshit and nonsense. Remember: If it’s not gonna matter in 5 years, don’t spend more than 5 minutes upset about it. Focus on the outcomes, not the obstacles. The outcome is the only option here. Never waste your precious time, energy, and attention. They are your ultimate currencies. Trade them wisely and carefully.
+Don't worry about bullshit and nonsense. Remember: If it’s not gonna matter in 5 years, don’t spend more than 5 minutes upset about it. Focus on the outcomes, not the obstacles. The outcome is the only option here. Never waste your precious time, energy, and attention. They are your ultimate currencies. Trade them wisely.
 
   
 
@@ -652,7 +652,7 @@ Surround yourself with people you love and admire; with people who think differe
   
 
 
-You are the average of the five people you associate with most. The quality of your experiences will be largely determined by the people you surround yourself with. Find your tribe.
+You are the average of the five people you associate with most. The quality of your experiences will be largely determined by the people you surround yourself with. Find your tribe. Build your personal advisory board of mentors.
 
   
 
