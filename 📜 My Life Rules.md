@@ -83,7 +83,7 @@ Deliberately train yourself to be very good at suffering, uncommonly resilient, 
   
 
 
-Learn with no end in mind. Learn for no reason at all. Learn to learn. Learning is the single best investment that you can make for your time.
+Learn with no end in mind. Learn for no reason at all. [Learn how to learn.](https://www.coursera.org/learn/learning-how-to-learn) Learning is the single best investment that you can make for your time.
 
   
 
@@ -207,7 +207,7 @@ Focus on the internal scorecard, not the external validation. Be primarily inter
   
 
 
-Be confident, bold, and fearless. Always  https://www.youtube.com/watch?v=Ks-_Mh1QhMcTake ownership and responsibility. Be decisive. Trust your gut. Remember that no one has it all figured out.
+Be confident, bold, and fearless. [Always stand up straight with your shoulders back.](https://www.youtube.com/watch?v=Ks-_Mh1QhMc) Be decisive. Trust your gut. Remember that no one has it all figured out.
 
   
 
@@ -267,12 +267,12 @@ If something is wrong, fix it now, but train yourself not to worry. Time spent w
   
 
 
-You always have 3 options in any circumstance/situation in life: change it, accept it, or leave it. If you don't like something, change it. If you can't change it, change your attitude. Never complain about anything. [Everything is your fault.](https://www.amazon.de/-/en/Jocko-Willink/dp/1250183863) Don't make any excuses. Things that are not your fault can still be your responsibility.
+You always have 3 options in any circumstance/situation in life: change it, accept it, or leave it. If you don't like something, change it. If you can't change it, change your attitude. Never complain about anything. [Everything is your fault.](https://www.amazon.de/-/en/Jocko-Willink/dp/1250183863) Take ownership and responsibility. Don't make any excuses. Things that are not your fault can still be your responsibility.
 
   
 
 
-Determine the variables that are within your control. Control the controllable.
+Determine the variables that are within your control. Control the controllable. [Set your house in perfect order before you criticize the world.](https://www.goodreads.com/book/show/30257963-12-rules-for-life)
 
   
 
@@ -542,7 +542,7 @@ Never ever sacrifice your sleep. Don't limit sleep length. Sleep as much as your
   
 
 
-Move your body. [Tame your mind.](https://www.youtube.com/watch?v=UlAPNQN2-Fw) Meditate, journal, go for a walk or do micro exercises throughout the day.
+Move your body. [Tame your mind.](https://www.youtube.com/watch?v=UlAPNQN2-Fw) Meditate, journal, go for a walk or [do micro-exercises](https://darebee.com/) throughout the day.
 
   
 
