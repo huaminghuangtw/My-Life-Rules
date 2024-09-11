@@ -287,7 +287,12 @@ If you want something—and you’ve done the work to earn it—go ask for it. C
   
 
 
-Make consistent daily tiny actions. Make everyday count. Never miss a day. Everyday you start at zero. Each morning you are born again. What you do today is what matters most. [The days are long, but the decades are short.](https://blog.samaltman.com/the-days-are-long-but-the-decades-are-short) No time wasted. Every single minutes matters. Ten minutes, once gone, are gone for good. You will never get the same moment twice.
+Make consistent daily tiny actions. Make everyday count. Never miss a day. Everyday you start at zero. Each morning you are born again. What you do today is what matters most. [The days are long, but the decades are short.](https://blog.samaltman.com/the-days-are-long-but-the-decades-are-short) [How you spend your days is how you spend your life.](https://www.goodreads.com/quotes/530337-how-we-spend-our-days-is-of-course-how-we)
+
+  
+
+
+No time wasted. Every single minutes matters. Ten minutes, once gone, are gone for good. You will never get the same moment twice.
 
   
 
@@ -382,7 +387,7 @@ Hope for the best, prepare for the worst, take what comes.
   
 
 
-[Never let success get into your head. Never let failure get into your heart.](https://www.goodreads.com/quotes/836064-never-let-success-get-to-your-head-and-never-let)
+[Never let success get into your head. Never let failure get into your heart.](https://www.goodreads.com/quotes/836064-never-let-success-get-to-your-head-and-never-let) [Success is not final, failure is not fatal: it is the courage to continue that counts.](https://www.youtube.com/watch?v=uuxMZL6ieWM)
 
   
 
