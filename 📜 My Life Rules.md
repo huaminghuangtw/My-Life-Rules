@@ -13,7 +13,7 @@ Always give your best, even when no one is watching. It's not just about shining
   
 
 
-Be obsessed with being the best in the world at whatever you do professionally. [Go all-in on your obsession. It’s what you were born to do.](https://timdenning.com/all-in-on-obsession/) Never do half-reps. Wherever you go, go with all your heart. Otherwise, you’ll always have to wonder what would have happened if you emptied your tank and gave it absolutely everything. Hold yourself responsible for a higher standard than anybody expects of you.
+[Doing the best at this moment puts you in the best place for the next moment.](https://www.goodreads.com/quotes/62132-doing-the-best-at-this-moment-puts-you-in-the) Be obsessed with being the best in the world at whatever you do professionally. [Go all-in on your obsession. It’s what you were born to do.](https://timdenning.com/all-in-on-obsession/) Never do half-reps. Wherever you go, go with all your heart. Otherwise, you’ll always have to wonder what would have happened if you emptied your tank and gave it absolutely everything. Hold yourself responsible for a higher standard than anybody expects of you.
 
   
 
@@ -53,7 +53,7 @@ Never say never. You don't know what you don't know, the unknown unknowns.
   
 
 
-[Always dream big and think big.](https://www.goodreads.com/book/show/759945.The_Magic_of_Thinking_Big) If your dreams don't scare you, you are not dreaming big enough. [The people who are crazy enough to think they can change the world are the ones that do.](https://www.goodreads.com/quotes/9859550-the-people-who-are-crazy-enough-to-think-they-can)
+[Always dream big and think big.](https://www.goodreads.com/book/show/759945.The_Magic_of_Thinking_Big) If your dreams don't scare you, you are not dreaming big enough. [The people who are crazy enough to think they can change the world are the ones that do.](https://www.goodreads.com/quotes/9859550-the-people-who-are-crazy-enough-to-think-they-can) When you think big and lose, you often grow more than when you think small and win.
 
   
 
@@ -83,7 +83,7 @@ Deliberately train yourself to be very good at suffering, uncommonly resilient, 
   
 
 
-Learn with no end in mind. Learn for no reason at all. [Learn how to learn.](https://www.coursera.org/learn/learning-how-to-learn) Learning is the single best investment that you can make for your time.
+Learn with no end in mind. Learn for no reason at all. [Learn how to learn.](https://www.coursera.org/learn/learning-how-to-learn) [Learn in public.](https://www.swyx.io/learn-in-public) Learning is the single best investment that you can make for your time.
 
   
 
@@ -517,7 +517,7 @@ The most damning lie is the lie you tell yourself. Always tell yourself the brut
   
 
 
-Know who you are. Love yourself. Value yourself. Forgive yourself. Make time for yourself. Enjoy yourself, it’s later than you think.
+Know who you are. [Love yourself.](https://www.goodreads.com/quotes/6915192-the-truth-is-to-love-yourself-with-the-same-intensity) Value yourself. Forgive yourself. Make time for yourself. Enjoy yourself, it’s later than you think.
 
   
 
