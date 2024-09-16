@@ -93,7 +93,7 @@ Try to learn something from everyone and everything every day. Learn from those 
   
 
 
-Never, ever stop learning. If you are not growing, you are dying. [If you don't learn, you can't change, and if you are not changing, what is the point of being here?](https://x.com/librarymindset/status/1530100260361539589) Think about it again! Cherish this massive birth gift. Always have faith in your capability learn new skills, no matter how hard the task seems. There is a universe of knowledge around you waiting to be explored and discovered.
+Never, ever stop learning. If you are not growing, you are dying. [If you don't learn, you can't change, and if you are not changing, what is the point of being here?](https://x.com/librarymindset/status/1530100260361539589) Think about it again! Cherish this massive birth gift. Always have faith in your capability learn new skills, no matter how hard the task seems. [Your ability to learn is not fixed, it can change with your effort.](https://www.youtube.com/watch?v=H14bBuluwB8)
 
  
 
@@ -192,7 +192,7 @@ Be the master of your fate. Be the captain of your soul. Own your power, influen
   
 
 
-If you spend your time chasing butterflies, they'll fly away. But if you spend your time making/mending a beautiful garden, the butterflies will come. [You should be too busy working on your grass to notice others is greener. Water your own grass.](https://www.reddit.com/r/GetMotivated/comments/fk2pol/image_im_too_busy_working_on_my_own_grass_to/) Focus on bettering yourself.
+If you spend your time chasing butterflies, they'll fly away. But if you spend your time making/mending a beautiful garden, the butterflies will come. Attract, not chase. [You should be too busy working on your grass to notice others is greener. Water your own grass.](https://www.reddit.com/r/GetMotivated/comments/fk2pol/image_im_too_busy_working_on_my_own_grass_to/) Focus on bettering yourself.
 
   
 
@@ -262,7 +262,7 @@ Never give up. Never make the same mistake. Adapt to changes. Learn from failure
   
 
 
-If something is wrong, fix it now, but train yourself not to worry. Time spent worrying is time wasted. It only drains your energy. Worry fixes nothing. Worrying does not take away tomorrow's troubles, but it takes away today's peace. Deal with the big while it is still small.
+If something is wrong, fix it now, but train yourself not to worry. Time spent worrying is time wasted. It only drains your energy. Worry fixes nothing. Worrying does not take away tomorrow's troubles, but it takes away today's peace. Deal with the big while it is still small. Minor problems become major problems if you allow them to linger.
 
   
 
@@ -332,7 +332,7 @@ Work hard. Work very hard. Work very hard every waking hour. But not every day. 
   
 
 
-Don't seek shortcuts. The only shortcut is doing something the right way the first time so that you don’t waste any time on the shortcuts. The only "hack" is relentless consistency. [If you want to be good, you don't really have a lot of choices. It takes what it takes. You have to do what you have to do to be successful.](https://m.youtube.com/watch?v=R0CAAlMo3f8) Do what is necessary. Do what is required.
+Don't seek quick wins or shortcuts. The only shortcut is doing something the right way the first time so that you don’t waste any time on the shortcuts. The only "hack" is relentless consistency. [If you want to be good, you don't really have a lot of choices. It takes what it takes. You have to do what you have to do to be successful.](https://m.youtube.com/watch?v=R0CAAlMo3f8) Do what is necessary. Do what is required.
 
   
 
