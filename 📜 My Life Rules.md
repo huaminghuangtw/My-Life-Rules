@@ -267,7 +267,12 @@ If something is wrong, fix it now, but train yourself not to worry. Time spent w
   
 
 
-You always have 3 options in any circumstance/situation in life: change it, accept it, or leave it. If you don't like something, change it. If you can't change it, change your attitude. Never complain about anything. [Everything is your fault.](https://www.amazon.de/-/en/Jocko-Willink/dp/1250183863) Take ownership and responsibility. Don't make any excuses. Things that are not your fault can still be your responsibility.
+You always have 3 options in any circumstance/situation in life: change it, accept it, or leave it. If you don't like something, change it. If you can't change it, change your attitude. But never, never, ever complain about anything. If it's within your control, go do something about it. If it's not, complaining is just a waste of energy.
+
+  
+
+
+[Everything is your fault.](https://www.amazon.de/-/en/Jocko-Willink/dp/1250183863) Take ownership and responsibility. Don't make any excuses. Things that are not your fault can still be your responsibility.
 
   
 
@@ -337,7 +342,7 @@ Don't seek quick wins or shortcuts. The only shortcut is doing something the rig
   
 
 
-In the mean time, try to accomplish things with the least amount of effort. Find the easiest way first. Do the simplest thing first. Move fast.
+In the mean time, try to accomplish things with the least amount of effort. Find the easiest way first. Do the simplest thing first. [Move fast.](https://www.instagram.com/timferriss/reel/C2AWTdXOTHM/) [Play easy mode.](https://fs.blog/doing-your-best/#:~:text=Doing%20your%20best%20means%20positioning,the%20best%20in%20the%20moment.)
 
   
 
