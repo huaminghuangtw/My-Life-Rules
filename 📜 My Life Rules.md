@@ -247,7 +247,7 @@ Explore, Discover, Try, Fail, Disappoint, Get lost, Suffer, Ask, Get feedback, L
   
 
 
-Leave your comfort zone. Take as much calculated risk as you can afford. Step into the unknown. Sit with the discomfort. Remember, if you are not failing occasionally, you are probably being too conservative.
+Leave your comfort zone. Take as much calculated risk as you can afford. Step into the unknown. Sit with the discomfort. Remember, if you are not failing occasionally, you are probably being too conservative. Taking no risk is the biggest risk you can take.
 
   
 
@@ -272,12 +272,17 @@ You always have 3 options in any circumstance/situation in life: change it, acce
   
 
 
-[Everything is your fault.](https://www.amazon.de/-/en/Jocko-Willink/dp/1250183863) Take ownership and responsibility. Don't make any excuses. Things that are not your fault can still be your responsibility.
+Control the controllable. Determine the variables that are within your control.
 
   
 
 
-Determine the variables that are within your control. Control the controllable. [Set your house in perfect order before you criticize the world.](https://www.goodreads.com/book/show/30257963-12-rules-for-life)
+Change yourself to change the world. Be the change you want to see.
+
+  
+
+
+Take ownership and responsibility. [Everything is your fault.](https://www.amazon.de/-/en/Jocko-Willink/dp/1250183863) Don't make any excuses. Things that are not your fault can still be your responsibility.
 
   
 
@@ -522,7 +527,7 @@ The most damning lie is the lie you tell yourself. Always tell yourself the brut
   
 
 
-Know who you are. [Love yourself.](https://www.goodreads.com/quotes/6915192-the-truth-is-to-love-yourself-with-the-same-intensity) Value yourself. Forgive yourself. Make time for yourself. Enjoy yourself, it’s later than you think.
+Know who you are. [Love yourself.](https://www.goodreads.com/quotes/6915192-the-truth-is-to-love-yourself-with-the-same-intensity) Value yourself. Forgive yourself. Make time for yourself. [Enjoy yourself, it’s later than you think.](https://www.youtube.com/watch?v=nFxjnUPRwx4)
 
   
 
@@ -617,7 +622,7 @@ Smile often. Laugh more. A day without laughter is a day wasted. Be funny. Be pl
   
 
 
-Stop taking things so seriously. Literally, in three generations, no one will even remember your name. Learn to laugh at yourself. The more you can laugh at yourself, the happier you'll be.
+[The more seriously you take yourself, the unhappier you’re going to be.](https://x.com/naval/status/1298724798655168514) The more you can laugh at yourself, the happier you'll be. Learn to laugh at yourself. Literally, in three generations, no one will even remember your name.
 
   
 
