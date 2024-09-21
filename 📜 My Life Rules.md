@@ -232,7 +232,7 @@ There is no such thing as a perfect you. It's all about optimization. And optimi
   
 
 
-[Keep your identity small.](https://paulgraham.com/identity.html) Listen very carefully to constructive negative feedback and criticism. Seek for the truth. No ego. Be humble. Be coachable. When you let go of what you are, you become what you might be. Enjoy being wrong or looking/sounding "stupid" in a public setting. Embrace that beginner's embarrassment. Approach everything with a beginner's mind. [It's always Day One.](https://www.youtube.com/watch?v=fTwXS2H_iJo&ab_channel=AmazonNews)
+[Keep your identity small.](https://paulgraham.com/identity.html) Listen very carefully to constructive negative feedback and criticism. Seek for the truth. No ego. [Be humble.](https://fs.blog/david-foster-wallace-this-is-water/) Be coachable. When you let go of what you are, you become what you might be. Enjoy being wrong or looking/sounding "stupid" in a public setting. Embrace that beginner's embarrassment. Approach everything with a beginner's mind. [It's always Day One.](https://www.youtube.com/watch?v=fTwXS2H_iJo&ab_channel=AmazonNews)
 
   
 
@@ -252,7 +252,7 @@ Leave your comfort zone. Take as much calculated risk as you can afford. Step in
   
 
 
-Never give up. Never make the same mistake. Adapt to changes. Learn from failures. Your greatest success is very likely just one step beyond your greatest failure.
+Never give up. The time will pass anyway. Never make the same mistake. Adapt to changes. Learn from failures. Your greatest success is very likely just one step beyond your greatest failure.
 
   
 
@@ -652,7 +652,7 @@ Spend as much of your time as possible doing activities that will provide you wi
   
 
 
-Be mindful, intentional, and purposeful. Live life by design, not default. Run your brain in debug mode and watch every thought. Always ask, why am I having this thought? Day by day, what you constantly think and what you do is who you become. Monitor yourself.
+Be mindful, intentional, and purposeful. [Live life by design, not default.](https://www.youtube.com/watch?v=DCbGM4mqEVw) [Run your brain in "debug mode" 24/7 and watch every thought. Always ask, why am I having this thought?](https://www.youtube.com/watch?v=DCbGM4mqEVw) Day by day, what you constantly think and what you do is who you become. Monitor yourself.
 
   
 
