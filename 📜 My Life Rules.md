@@ -212,7 +212,7 @@ Be confident, bold, and fearless. [Always stand up straight with your shoulders 
   
 
 
-[In life, the only constant is change.](https://www.youtube.com/watch?v=4q1dgn_C0AU) Your life doesn't get better by chance, it gets better by change. The first step toward change is awareness. The second step is acceptance. Be ready to transform yourself completely into another person, and be ready to be in an internal state of self-revolution at any time. Strong opinions, loosely held. Be dynamic, adaptable, and open-minded. Don't settle. Don't fixate on anything. Progress is about moving forward. Move. You are not a tree!
+[In life, the only constant is change.](https://www.youtube.com/watch?v=XNbaR54Gpj4) Your life doesn't get better by chance, it gets better by change. The first step toward change is awareness. The second step is acceptance. Be ready to transform yourself completely into another person, and be ready to be in an internal state of self-revolution at any time. Strong opinions, loosely held. Be dynamic, adaptable, and open-minded. Don't settle. Don't fixate on anything. Progress is about moving forward. Move. You are not a tree!
 
   
 
@@ -292,7 +292,7 @@ Pursue your goals aggressively and relentlessly. There is no compromise. [Don't 
   
 
 
-If you want something—and you’ve done the work to earn it—go ask for it. Closed mouths don't get fed. In life, you don't get what you deserve, you get what you think you deserve. Ask for forgiveness, not permission. Just tap yourself on the shoulder and do the work directly. If you live for people's approval, you will die from their rejection.
+If you want something—and you’ve done the work to earn it—[go ask for it. Closed mouths don't get fed.](https://www.youtube.com/watch?v=zkTf0LmDqKI) In life, you don't get what you deserve, you get what you think you deserve. Ask for forgiveness, not permission. Just tap yourself on the shoulder and do the work directly. If you live for people's approval, you will die from their rejection.
 
   
 
@@ -307,12 +307,12 @@ No time wasted. Every single minutes matters. Ten minutes, once gone, are gone f
   
 
 
-Show up every day. Be a habit and routine machine. Do a little more what you want to do every single day, until your vision becomes reality. It's those little bits of good put together that overwhelm the world.
+Show up every day. Be a habit and routine machine. Every single day, chop wood, carry water. [The work never stops.](https://www.youtube.com/watch?v=Ju5kyQJyGBY)
 
   
 
 
-Your daily behaviors shape your future. A good day of training is worth little on its own, but a good year was worth plenty. Your final results are merely a reflection of your prior commitments. [All success is a lagging indicator.](https://ryanholiday.net/all-success-is-a-lagging-indicator)
+Your daily behaviors shape your future. A good day of training is worth little on its own, but a good year was worth plenty. Your final results are merely a reflection of your prior commitments. Do a little more what you want to do every single day, until your vision becomes reality. It's those little bits of good put together that overwhelm the world. [All success is a lagging indicator.](https://ryanholiday.net/all-success-is-a-lagging-indicator)
 
   
 
@@ -457,7 +457,7 @@ Slow down and calm down to select opportunities and activities with the highest 
   
 
 
-Wanna go fast? Go slow. Slowly by slowly. Slow is smooth, smooth is fast. Start slow, finish fast. Pause, Think, and Act. Rushing causes errors. Errors cause setbacks. Setbacks cause delays.
+Wanna go fast? Go slow first. Slowly by slowly. Slow is smooth, smooth is fast. Start slow, finish fast. Pause, Think, and Act. Rushing causes errors. Errors cause setbacks. Setbacks cause delays.
 
   
 
