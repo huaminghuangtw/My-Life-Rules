@@ -19,7 +19,7 @@ Never say never. You don't know what you don't know, the unknown unknowns.
 
 [Believe in yourself. If you don’t believe in yourself, it’s hard to let yourself have contrarian ideas about the future. Have almost too much self-belief, and balance it with self-awareness.](https://blog.samaltman.com/how-to-be-successful) Your belief system is critical to how you perform and respond to challenges.
 
-[Keeping the promises you make to yourself. Every single time you keep that promise, you are stacking evidence in favor of the type of person that you want to become.](https://sportsforthesoul.com/john-wooden-9-promises/) Do not rationalize.
+[Keeping the promises you make to yourself. Every single time you keep that promise, you are stacking evidence in favor of the type of person that you want to become.](https://sportsforthesoul.com/john-wooden-9-promises/) Never rationalize.
 
 [Always dream big and think big.](https://www.goodreads.com/book/show/759945.The_Magic_of_Thinking_Big) If your dreams don't scare you, you are not dreaming big enough. [The people who are crazy enough to think they can change the world are the ones that do.](https://www.goodreads.com/quotes/9859550-the-people-who-are-crazy-enough-to-think-they-can) When you think big and lose, you often grow more than when you think small and win.
 
