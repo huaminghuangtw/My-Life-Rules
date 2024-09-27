@@ -7,7 +7,7 @@ Welcome to **Your Pocket Life Coach**, a personal life coach in your pocket!
 
 ## 🌟 Why This Project
 
-This project is deeply personal to me. The principles and philosophies in the script are not just words and sentences; they represent the values I strive to live by every single day. They are the navigation compass that guides me through life's challenges, helping me stay on course toward the true north in this fast-paced world.
+This project is deeply personal to me. The principles and philosophies in the script are not just words and sentences; they represent the values I strive to live by every single day. They are the navigation compass that guides me through life's challenges, helping me stay on course toward the true north in this fast-paced world. 🧭
 
 Over the years, I have been inspired by the works of writers and creators I admire, such as [James Clear](https://jamesclear.com/), [Tim Ferriss](https://tim.blog), [Ali Abdaal](https://aliabdaal.com/), [Sahil Bloom](https://sahilbloom.com/), [Ryan Holiday](https://ryanholiday.net/), and many others. These individuals are more than just authors to me—they are all my heroes, my role models. Their timeless insights and wisdom have been instrumental in shaping my mindset and approach to life. I created **Your Pocket Life Coach** out of a desire to share these invaluable life lessons and to help others find the same strength that I have discovered through their content.
 
