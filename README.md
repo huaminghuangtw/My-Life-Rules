@@ -16,14 +16,14 @@ I wanted to create a tool that could serve as a constant companion, helping peop
 ## 🎯 What This Project Offers
 
 - A carefully curated script with motivational quotes and actionable tips.
-- An [Apple Shortcut](https://www.icloud.com/shortcuts/26ea30b644bf42848a53c2bff1e8213f) that utilizes text-to-speech technology to convert the script into audio, allowing you to listen to motivational content on the go.
+- An [Apple Shortcut](https://www.icloud.com/shortcuts/4c900fdd914a48eea12e40262781f588) that utilizes text-to-speech technology to convert the script into audio, allowing you to listen to motivational content on the go.
 
 ## 💁‍♂️ How to Use the Apple Shortcut
 
 Follow the steps below to start using the **Your Pocket Life Coach** Apple Shortcut:
 
 1. **Download the Shortcut**:
-   - Click on [this link](https://www.icloud.com/shortcuts/26ea30b644bf42848a53c2bff1e8213f) to download the shortcut.
+   - Click on [this link](https://www.icloud.com/shortcuts/4c900fdd914a48eea12e40262781f588) to download the shortcut.
 
 2. **Install the Shortcut**:
    - Once you click the link, it will open in the Shortcuts app on your iPhone/iPad/MacBook.
