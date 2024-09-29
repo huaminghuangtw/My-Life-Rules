@@ -137,7 +137,7 @@ You got to fall in love with the process. The journey is the reward. Trust the e
 
 Work hard. Work very hard. Work very hard every waking hour. But not every day. Work as hard as you can without burning out. The world needs people willing to work while others rest. [If you want to look good in front of thousands, you have to outwork thousands in front of nobody.](https://x.com/Dame_Lillard/status/555485512492785665?lang=en)
 
-Don't seek quick wins or shortcuts. The only shortcut is doing something the right way the first time so that you don’t waste any time on the shortcuts. The only "hack" is relentless consistency. [If you want to be good, you don't really have a lot of choices. It takes what it takes. You have to do what you have to do to be successful.](https://m.youtube.com/watch?v=R0CAAlMo3f8) Do what is necessary. Do what is required.
+Don't seek quick wins or shortcuts. The only shortcut is doing something the right way the first time so that you don’t waste any time on the shortcuts. The only "hack" is relentless consistency. [If you want to be good, you don't really have many choices. It takes what it takes. You have to do what you have to do to be successful.](https://m.youtube.com/watch?v=R0CAAlMo3f8) Do what is necessary. Do what is required.
 
 In the mean time, try to accomplish things with the least amount of effort. Find the easiest way first. Do the simplest thing first. [Move fast.](https://www.instagram.com/timferriss/reel/C2AWTdXOTHM/) [Play easy mode.](https://fs.blog/doing-your-best/#:~:text=Doing%20your%20best%20means%20positioning,the%20best%20in%20the%20moment.)
 
@@ -225,9 +225,9 @@ Never ever sacrifice your sleep. Don't limit sleep length. Sleep as much as your
 
 Move your body. [Tame your mind.](https://www.youtube.com/watch?v=UlAPNQN2-Fw) Meditate, journal, go for a walk or [do micro-exercises](https://darebee.com/) throughout the day.
 
-Take more breaks, but not too long. Use yoga, stretching, and foam roller massage as often when necessary. They reduce your tension, anxiety, or stress, and could help you to relax for better productivity and creativity.
+Take more breaks, but not too long. Learn to rest, but not quit. Learn to rest before you are tired. Rest is a critical part of your high performance routine. It's not a special treat. It's an absolute necessity.
 
-Learn to rest, but not quit. Learn to rest before you are tired.
+Do yoga, stretching, foam roller massage, and a lot of heat-cold contrast therapy as often as you can. They reduce your muscle tension, anxiety, or stress, both mentally and physically, and could help you to relax for better productivity and creativity.
 
 Fast as often as you can. Don’t eat too much. Only eat when you are hungry. Stop eating when you are eighty percent full. Be wholeheartedly appreciative and fully present in gratitude for the food you eat and the body you are feeding. No craving. Don't use eating as a form of procrastination.
 
