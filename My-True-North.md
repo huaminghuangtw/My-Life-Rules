@@ -3,7 +3,7 @@ Dear Today Me,
 
 Try to be the best version of yourself as you possibly can—that's the reason why you exist on this planet.
 
-Always give your best, even when no one is watching. It's not just about shining. It's about fueling your energy and boosting your confidence. At the end of the day, you can lay down and rest easy knowing you have made the best of which you're capable and gave it your all.
+Always give your best, even when no one is watching. It's not just about shining. It's about fueling your energy and boosting your confidence. [At the end of the day, you can lay down and rest easy knowing you have made the best of which you're capable and gave it your all.](https://www.goodreads.com/quotes/445606-being-the-richest-man-in-the-cemetery-doesn-t-matter-to)
 
 [Doing the best at this moment puts you in the best place for the next moment.](https://www.goodreads.com/quotes/62132-doing-the-best-at-this-moment-puts-you-in-the) Be obsessed with being the best in the world at whatever you do professionally. [Go all-in on your obsession. It’s what you were born to do.](https://timdenning.com/all-in-on-obsession/) Never do half-reps. Wherever you go, go with all your heart. Otherwise, you’ll always have to wonder what would have happened if you emptied your tank and gave it absolutely everything. Hold yourself responsible for a higher standard than anybody expects of you.
 
