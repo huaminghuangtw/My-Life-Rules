@@ -1,5 +1,5 @@
 ---
-modified: 2026-07-31
+modified: 2026-08-24
 ---
 
 Dear Today Me,
@@ -350,7 +350,7 @@ Practice random acts of kindness. Remember: Every person is fighting a battle yo
 
 When you think something nice about someone, tell them right away. Don’t hold any unexpressed love until the last day of your life. Leave a positive review. Leave a compliment for someone, no matter how small it is. [Make the coffee.](https://www.sahilbloom.com/newsletter/the-most-important-decision-of-your-life)
 
-Try to learn something from everyone around you. Every person has a unique story to tell and a valuable lesson to share. [Everyone is a geek about something.](https://sketchplanations.com/geek)
+Try to learn something from everyone around you. Every person has a unique story to tell and a valuable lesson to share. [Everyone is a geek about something.](https://sketchplanations.com/geek) [The only normal people are the ones you don’t know very well.](https://brainyquote.com/quotes/alfred_adler_118995)
 
 Strive to empower everyone around you to be better. Minimize suffering caused to other people. Be conscious of other people’s feelings, facial expression, and body language.
 
